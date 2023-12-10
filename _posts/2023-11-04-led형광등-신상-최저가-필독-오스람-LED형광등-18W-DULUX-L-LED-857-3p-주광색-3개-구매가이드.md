@@ -39,7 +39,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 54%  50,000   원
 - 가격: <span style='color:red'>23,650원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=2567073556&vendorItemId=70559501110)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=2567073556&vendorItemId=70559501110)
 
 ---
 
@@ -56,7 +57,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 32%  59,360   원
 - 가격: <span style='color:red'>23,650원</span>
-- 리뷰수: 83  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=2567073556&vendorItemId=70559501110)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=2567073556&vendorItemId=70559501110)
 
 ---
 
@@ -73,7 +75,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>9,830원</span>
-- 리뷰수: 29  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=43049852&traceid=V0-153&itemId=155859391&vendorItemId=3365641710)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=43049852&traceid=V0-153&itemId=155859391&vendorItemId=3365641710)
 
 ---
 
@@ -90,7 +93,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 30%  27,000   원
 - 가격: <span style='color:red'>7,560원</span>
-- 리뷰수: 63  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6723412911&traceid=V0-153&itemId=15642807222&vendorItemId=85340478886)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6723412911&traceid=V0-153&itemId=15642807222&vendorItemId=85340478886)
 
 ---
 
@@ -107,7 +111,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 20%  19,800   원
 - 가격: <span style='color:red'>12,340원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7012165157&traceid=V0-153&itemId=17236308418&vendorItemId=84407939955)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7012165157&traceid=V0-153&itemId=17236308418&vendorItemId=84407939955)
 
 ---
 
@@ -124,7 +129,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 16%  23,800   원
 - 가격: <span style='color:red'>129,800원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1807408913&traceid=V0-153&itemId=3075251353&vendorItemId=71063127375)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1807408913&traceid=V0-153&itemId=3075251353&vendorItemId=71063127375)
 
 ---
 
@@ -141,7 +147,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 35%  45,900   원
 - 가격: <span style='color:red'>8,510원</span>
-- 리뷰수: 90  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=218609921&vendorItemId=3528464840)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=218609921&vendorItemId=3528464840)
 
 ---
 
@@ -158,7 +165,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 42%  32,600   원
 - 가격: <span style='color:red'>9,900원</span>
-- 리뷰수: 178  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402225077&traceid=V0-153&itemId=19161840491&vendorItemId=86280396859)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402225077&traceid=V0-153&itemId=19161840491&vendorItemId=86280396859)
 
 ---
 
@@ -175,7 +183,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 26%  500,000   원
 - 가격: <span style='color:red'>5,450원</span>
-- 리뷰수: 42  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6262089294&traceid=V0-153&itemId=12756317169&vendorItemId=80011518865)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6262089294&traceid=V0-153&itemId=12756317169&vendorItemId=80011518865)
 
 ---
 
@@ -192,7 +201,8 @@ LED형광등은 백열등이나 형광등에 비해 플리커 현상이 적습�
 
 - 할인율과 원래가격: 30%  42,600   원
 - 가격: <span style='color:red'>19,850원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774843&traceid=V0-153&itemId=17398140375&vendorItemId=84567593728)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774843&traceid=V0-153&itemId=17398140375&vendorItemId=84567593728)
 
 ---
 **LED형광등 구매시 주의점**

@@ -39,7 +39,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -56,7 +57,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>89,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -73,7 +75,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>204,900원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 ---
 
@@ -90,7 +93,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>191,400원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 ---
 
@@ -107,7 +111,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>27,900원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7287487281&traceid=V0-153&itemId=18618702914&vendorItemId=85910786977)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7287487281&traceid=V0-153&itemId=18618702914&vendorItemId=85910786977)
 
 ---
 
@@ -124,7 +129,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>125,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=12180961241&vendorItemId=86683611677)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=12180961241&vendorItemId=86683611677)
 
 ---
 
@@ -141,7 +147,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>301,400원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
 
 ---
 
@@ -158,7 +165,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>117,680원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 ---
 
@@ -175,7 +183,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 33%  499,000   원
 - 가격: <span style='color:red'>44,900원</span>
-- 리뷰수: 3408  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6286993731&traceid=V0-153&itemId=12935345353&vendorItemId=80199755523)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6286993731&traceid=V0-153&itemId=12935345353&vendorItemId=80199755523)
 
 ---
 
@@ -192,7 +201,8 @@ SSD는 HDD에 비해 크기와 무게가 작습니다. HDD는 회전하는 디�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>41,500원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
 
 ---
 **SSD 구매 시 주의점**

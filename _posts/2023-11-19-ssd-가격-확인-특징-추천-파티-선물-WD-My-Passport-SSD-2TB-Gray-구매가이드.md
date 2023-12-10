@@ -43,7 +43,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>199,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588465&vendorItemId=86683635573)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588465&vendorItemId=86683635573)
 
 ---
 
@@ -60,7 +61,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -77,7 +79,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>89,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -94,7 +97,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>191,400원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 ---
 
@@ -111,7 +115,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>8,880원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=103673516&vendorItemId=3197394423)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=103673516&vendorItemId=3197394423)
 
 ---
 
@@ -128,7 +133,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>119,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7165621743&traceid=V0-153&itemId=18041872519&vendorItemId=87007931945)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7165621743&traceid=V0-153&itemId=18041872519&vendorItemId=87007931945)
 
 ---
 
@@ -145,7 +151,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>301,400원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
 
 ---
 
@@ -162,7 +169,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>117,680원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 ---
 
@@ -179,7 +187,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 33%  499,000   원
 - 가격: <span style='color:red'>194,000원</span>
-- 리뷰수: 3408  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308624727&traceid=V0-153&itemId=8308395687&vendorItemId=75596285409)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308624727&traceid=V0-153&itemId=8308395687&vendorItemId=75596285409)
 
 ---
 
@@ -196,7 +205,8 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>41,500원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
 
 ---
 **SSD 구매 시 주의점**

@@ -40,7 +40,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>1,301,400원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116608585&traceid=V0-153&itemId=17806831717&vendorItemId=84970845590)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116608585&traceid=V0-153&itemId=17806831717&vendorItemId=84970845590)
 
 ---
 
@@ -57,7 +58,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>318,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7291933753&traceid=V0-153&itemId=18639707084&vendorItemId=85295665109)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7291933753&traceid=V0-153&itemId=18639707084&vendorItemId=85295665109)
 
 ---
 
@@ -74,7 +76,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>558,010원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709149042&traceid=V0-153&itemId=20660239753&vendorItemId=86150525413)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709149042&traceid=V0-153&itemId=20660239753&vendorItemId=86150525413)
 
 ---
 
@@ -91,7 +94,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>840,050원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612241814&traceid=V0-153&itemId=20163635465&vendorItemId=84761252468)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7612241814&traceid=V0-153&itemId=20163635465&vendorItemId=84761252468)
 
 ---
 
@@ -108,7 +112,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>530,970원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7135867929&traceid=V0-153&itemId=17904711974&vendorItemId=85067467197)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7135867929&traceid=V0-153&itemId=17904711974&vendorItemId=85067467197)
 
 ---
 
@@ -125,7 +130,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>88,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1102598834&traceid=V0-153&itemId=2062961084&vendorItemId=4603243858)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1102598834&traceid=V0-153&itemId=2062961084&vendorItemId=4603243858)
 
 ---
 
@@ -142,7 +148,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>825,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305601766&traceid=V0-153&itemId=963179580&vendorItemId=86504860134)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=305601766&traceid=V0-153&itemId=963179580&vendorItemId=86504860134)
 
 ---
 
@@ -159,7 +166,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>1,166,230원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6143255834&traceid=V0-153&itemId=11802217393&vendorItemId=79075784741)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6143255834&traceid=V0-153&itemId=11802217393&vendorItemId=79075784741)
 
 ---
 
@@ -176,7 +184,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 33%  499,000   원
 - 가격: <span style='color:red'>118,000원</span>
-- 리뷰수: 3408  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7561913131&traceid=V0-153&itemId=19924264880&vendorItemId=87023931435)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7561913131&traceid=V0-153&itemId=19924264880&vendorItemId=87023931435)
 
 ---
 
@@ -193,7 +202,8 @@ LG 공기청정기는 심플하고 세련된 디자인으로 거실이나 침실
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>239,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1459596042&traceid=V0-153&itemId=2511512097&vendorItemId=77583616215)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1459596042&traceid=V0-153&itemId=2511512097&vendorItemId=77583616215)
 
 ---
 **LG 공기청정기 구매 시 주의점**

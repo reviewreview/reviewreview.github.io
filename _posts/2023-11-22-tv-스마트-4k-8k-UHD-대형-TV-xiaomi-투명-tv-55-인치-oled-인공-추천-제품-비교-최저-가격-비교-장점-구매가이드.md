@@ -51,7 +51,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 24%  329,000   원
 - 가격: <span style='color:red'>19,524,100원</span>
-- 리뷰수: 4842  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6716198368&traceid=V0-153&itemId=15608704069&vendorItemId=83076203545)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6716198368&traceid=V0-153&itemId=15608704069&vendorItemId=83076203545)
 
 ---
 
@@ -68,7 +69,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 21%  369,000   원
 - 가격: <span style='color:red'>1,009,000원</span>
-- 리뷰수: 4842  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 ---
 
@@ -85,7 +87,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 쿠폰할인가 3%  29,800   원
 - 가격: <span style='color:red'>124,030원</span>
-- 리뷰수: 218  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -102,7 +105,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>187,500원</span>
-- 리뷰수: 16334  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7670968061&traceid=V0-153&itemId=20463071632&vendorItemId=87475057448)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7670968061&traceid=V0-153&itemId=20463071632&vendorItemId=87475057448)
 
 ---
 
@@ -119,7 +123,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>299,000원</span>
-- 리뷰수: 922  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87697055853)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87697055853)
 
 ---
 
@@ -136,7 +141,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 7%  43,000   원
 - 가격: <span style='color:red'>316,500원</span>
-- 리뷰수: 1023  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6825452087&traceid=V0-153&itemId=16189878672&vendorItemId=85159760921)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6825452087&traceid=V0-153&itemId=16189878672&vendorItemId=85159760921)
 
 ---
 
@@ -153,7 +159,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>399,000원</span>
-- 리뷰수: 4842  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
 
 ---
 
@@ -170,7 +177,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>204,780원</span>
-- 리뷰수: 16334  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116119970&traceid=V0-153&itemId=17804333942&vendorItemId=3011945885)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116119970&traceid=V0-153&itemId=17804333942&vendorItemId=3011945885)
 
 ---
 
@@ -187,7 +195,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 25%  79,000   원
 - 가격: <span style='color:red'>539,000원</span>
-- 리뷰수: 29  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20582655012&vendorItemId=87657597922)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20582655012&vendorItemId=87657597922)
 
 ---
 
@@ -204,7 +213,8 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 - 할인율과 원래가격: 25%  299,000   원
 - 가격: <span style='color:red'>499,000원</span>
-- 리뷰수: 16334  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587795&vendorItemId=83054623257)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587795&vendorItemId=83054623257)
 
 ---
 **TV 구매 시 주의점**

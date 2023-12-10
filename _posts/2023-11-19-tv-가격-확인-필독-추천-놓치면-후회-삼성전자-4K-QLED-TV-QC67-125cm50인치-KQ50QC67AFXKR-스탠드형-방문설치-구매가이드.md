@@ -35,7 +35,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>866,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589252329&traceid=V0-153&itemId=18840553684&vendorItemId=85970241342)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7589252329&traceid=V0-153&itemId=18840553684&vendorItemId=85970241342)
 
 ---
 
@@ -52,7 +53,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>499,000원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20575504537&vendorItemId=87650740767)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20575504537&vendorItemId=87650740767)
 
 ---
 
@@ -69,7 +71,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>124,030원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -86,7 +89,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>1,067,190원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 ---
 
@@ -103,7 +107,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>3,890,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249262438&traceid=V0-153&itemId=18436462598&vendorItemId=85577776261)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249262438&traceid=V0-153&itemId=18436462598&vendorItemId=85577776261)
 
 ---
 
@@ -120,7 +125,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>3,099,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7217046670&traceid=V0-153&itemId=18279099597&vendorItemId=85425090121)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7217046670&traceid=V0-153&itemId=18279099597&vendorItemId=85425090121)
 
 ---
 
@@ -137,7 +143,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>1,327,100원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587807&vendorItemId=83054623314)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587807&vendorItemId=83054623314)
 
 ---
 
@@ -154,7 +161,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>729,000원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361440&vendorItemId=85282102197)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361440&vendorItemId=85282102197)
 
 ---
 
@@ -171,7 +179,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 33%  499,000   원
 - 가격: <span style='color:red'>2,590,000원</span>
-- 리뷰수: 3408  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249262438&traceid=V0-153&itemId=18436462593&vendorItemId=85577776239)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249262438&traceid=V0-153&itemId=18436462593&vendorItemId=85577776239)
 
 ---
 
@@ -188,7 +197,8 @@ TV는 집에서 다양한 활동을 가능하게 해줍니다. 뉴스나 드라�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>919,100원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 ---
 **TV 구매시 주의점**

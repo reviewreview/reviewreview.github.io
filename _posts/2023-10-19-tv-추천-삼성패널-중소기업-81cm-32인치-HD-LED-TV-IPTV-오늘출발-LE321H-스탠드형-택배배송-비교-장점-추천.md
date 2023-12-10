@@ -67,7 +67,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>143,500원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 ---
 
@@ -84,7 +85,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>119,000원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -101,7 +103,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>1,259,000원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117537&vendorItemId=81881173998)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117537&vendorItemId=81881173998)
 
 ---
 
@@ -118,7 +121,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>251,990원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
 
 ---
 
@@ -135,7 +139,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>223,500원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634949505&traceid=V0-153&itemId=20271917327&vendorItemId=83384745640)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7634949505&traceid=V0-153&itemId=20271917327&vendorItemId=83384745640)
 
 ---
 
@@ -152,7 +157,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>317,500원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6825452087&traceid=V0-153&itemId=16189878672&vendorItemId=85159760921)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6825452087&traceid=V0-153&itemId=16189878672&vendorItemId=85159760921)
 
 ---
 
@@ -169,7 +175,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 15%  369,000   원
 - 가격: <span style='color:red'>599,000원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6870201908&traceid=V0-153&itemId=17445309098&vendorItemId=84613898935)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6870201908&traceid=V0-153&itemId=17445309098&vendorItemId=84613898935)
 
 ---
 
@@ -186,7 +193,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 29%  329,000   원
 - 가격: <span style='color:red'>419,000원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
 
 ---
 
@@ -203,7 +211,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 20%  49,800   원
 - 가격: <span style='color:red'>243,500원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7598048654&traceid=V0-153&itemId=19886840409&vendorItemId=83384943514)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7598048654&traceid=V0-153&itemId=19886840409&vendorItemId=83384943514)
 
 ---
 
@@ -220,7 +229,8 @@ TV는 다양한 장점을 가지고 있지만, 화질, 크기, 기능, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>1,390,000원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 ---
 **TV 구매 시 주의점**

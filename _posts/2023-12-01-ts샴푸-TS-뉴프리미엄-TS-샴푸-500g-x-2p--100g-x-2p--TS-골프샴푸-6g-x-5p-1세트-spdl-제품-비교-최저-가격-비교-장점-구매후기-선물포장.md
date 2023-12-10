@@ -39,7 +39,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 71%  219,000   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 79  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -56,7 +57,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 88  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -73,7 +75,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>51,000원</span>
-- 리뷰수: 1400  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=87794506521)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=87794506521)
 
 ---
 
@@ -90,7 +93,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 386  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
 
 ---
 
@@ -107,7 +111,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 89%  400,000   원
 - 가격: <span style='color:red'>21,510원</span>
-- 리뷰수: 1345  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470528542&traceid=V0-153&itemId=19351531900&vendorItemId=86277390208)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470528542&traceid=V0-153&itemId=19351531900&vendorItemId=86277390208)
 
 ---
 
@@ -124,7 +129,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 85%  300,000   원
 - 가격: <span style='color:red'>21,900원</span>
-- 리뷰수: 1425  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6848534892&traceid=V0-153&itemId=16305775272&vendorItemId=83498058320)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6848534892&traceid=V0-153&itemId=16305775272&vendorItemId=83498058320)
 
 ---
 
@@ -141,7 +147,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 23%  12,900   원
 - 가격: <span style='color:red'>18,990원</span>
-- 리뷰수: 2443  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198218320&vendorItemId=70358475686)
 
 ---
 
@@ -158,7 +165,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>34,240원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619553428&traceid=V0-153&itemId=20198235977&vendorItemId=85296875666)
 
 ---
 
@@ -175,7 +183,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>25,900원</span>
-- 리뷰수: 1013  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492913557&traceid=V0-153&itemId=19596534042&vendorItemId=86703791008)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7492913557&traceid=V0-153&itemId=19596534042&vendorItemId=86703791008)
 
 ---
 
@@ -192,7 +201,8 @@ TS샴푸는 부드럽고 풍성한 거품을 내어 두피와 모발을 깨끗�
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>30,540원</span>
-- 리뷰수: 2443  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6658994555&traceid=V0-153&itemId=15280673813&vendorItemId=82501166930)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6658994555&traceid=V0-153&itemId=15280673813&vendorItemId=82501166930)
 
 ---
 **# TS샴푸 구매시 주의점**

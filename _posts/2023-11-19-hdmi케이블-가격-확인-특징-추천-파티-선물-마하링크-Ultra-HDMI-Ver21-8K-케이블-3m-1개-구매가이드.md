@@ -39,7 +39,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>16,500원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026690&vendorItemId=4379922833)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026690&vendorItemId=4379922833)
 
 ---
 
@@ -56,7 +57,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>8,190원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326733230&traceid=V0-153&itemId=13212763799&vendorItemId=80471181733)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326733230&traceid=V0-153&itemId=13212763799&vendorItemId=80471181733)
 
 ---
 
@@ -73,7 +75,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>6,230원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1275068649&traceid=V0-153&itemId=2280980290&vendorItemId=70278102618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1275068649&traceid=V0-153&itemId=2280980290&vendorItemId=70278102618)
 
 ---
 
@@ -90,7 +93,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>11,750원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
 
 ---
 
@@ -107,7 +111,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>14,500원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026649&vendorItemId=4379922714)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026649&vendorItemId=4379922714)
 
 ---
 
@@ -124,7 +129,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>6,500원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5258006001&traceid=V0-153&itemId=7463595012&vendorItemId=74754448079)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5258006001&traceid=V0-153&itemId=7463595012&vendorItemId=74754448079)
 
 ---
 
@@ -141,7 +147,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>4,900원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=199761771&traceid=V0-153&itemId=579240357&vendorItemId=4517711790)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=199761771&traceid=V0-153&itemId=579240357&vendorItemId=4517711790)
 
 ---
 
@@ -158,7 +165,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>18,950원</span>
-- 리뷰수: 16301  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7501036218&vendorItemId=74791792031)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7501036218&vendorItemId=74791792031)
 
 ---
 
@@ -175,7 +183,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 33%  499,000   원
 - 가격: <span style='color:red'>3,420원</span>
-- 리뷰수: 3408  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1768219844&traceid=V0-153&itemId=3010860557&vendorItemId=70999059451)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1768219844&traceid=V0-153&itemId=3010860557&vendorItemId=70999059451)
 
 ---
 
@@ -192,7 +201,8 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>8,400원</span>
-- 리뷰수: 4739  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5723498336&traceid=V0-153&itemId=20536582513&vendorItemId=87613289266)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5723498336&traceid=V0-153&itemId=20536582513&vendorItemId=87613289266)
 
 ---
 **HDMI 케이블 구매 시 주의 사항**

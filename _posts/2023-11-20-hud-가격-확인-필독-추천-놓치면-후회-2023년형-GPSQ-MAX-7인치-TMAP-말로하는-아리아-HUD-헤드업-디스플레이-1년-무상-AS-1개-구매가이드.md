@@ -39,7 +39,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>137,000원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6108932469&traceid=V0-153&itemId=11500835400&vendorItemId=87143706584)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6108932469&traceid=V0-153&itemId=11500835400&vendorItemId=87143706584)
 
 ---
 
@@ -56,7 +57,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>29,500원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=204741753&traceid=V0-153&itemId=602249470&vendorItemId=4578045054)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=204741753&traceid=V0-153&itemId=602249470&vendorItemId=4578045054)
 
 ---
 
@@ -73,7 +75,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 즉시할인가 77%  490,000   원
 - 가격: <span style='color:red'>25,900원</span>
-- 리뷰수: 8  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1292198041&traceid=V0-153&itemId=2303451494&vendorItemId=5324619191)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1292198041&traceid=V0-153&itemId=2303451494&vendorItemId=5324619191)
 
 ---
 
@@ -90,7 +93,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>178,000원</span>
-- 리뷰수: 16315  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7643276152&traceid=V0-153&itemId=20315898213&vendorItemId=87172864141)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7643276152&traceid=V0-153&itemId=20315898213&vendorItemId=87172864141)
 
 ---
 
@@ -107,7 +111,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 쿠폰할인가 3%  29,800   원
 - 가격: <span style='color:red'>69,990원</span>
-- 리뷰수: 212  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390902457&traceid=V0-153&itemId=19108273414&vendorItemId=86228545288)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390902457&traceid=V0-153&itemId=19108273414&vendorItemId=86228545288)
 
 ---
 
@@ -124,7 +129,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>109,000원</span>
-- 리뷰수: 920  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679850428&traceid=V0-153&itemId=20509923883&vendorItemId=87587731619)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679850428&traceid=V0-153&itemId=20509923883&vendorItemId=87587731619)
 
 ---
 
@@ -141,7 +147,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>27,200원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7472966417&traceid=V0-153&itemId=19503241588&vendorItemId=87141856918)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7472966417&traceid=V0-153&itemId=19503241588&vendorItemId=87141856918)
 
 ---
 
@@ -158,7 +165,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 19%  469,000   원
 - 가격: <span style='color:red'>109,000원</span>
-- 리뷰수: 4764  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899533061&traceid=V0-153&itemId=16589687293&vendorItemId=83743083955)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6899533061&traceid=V0-153&itemId=16589687293&vendorItemId=83743083955)
 
 ---
 
@@ -175,7 +183,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 7%  43,000   원
 - 가격: <span style='color:red'>138,000원</span>
-- 리뷰수: 1019  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6729106512&traceid=V0-153&itemId=15673675275&vendorItemId=82889203708)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6729106512&traceid=V0-153&itemId=15673675275&vendorItemId=82889203708)
 
 ---
 
@@ -192,7 +201,8 @@ HUD는 최근 자동차의 필수 옵션으로 자리 잡고 있습니다. HUD�
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>26,900원</span>
-- 리뷰수: 16315  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1837353390&traceid=V0-153&itemId=3124036522&vendorItemId=71111705995)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1837353390&traceid=V0-153&itemId=3124036522&vendorItemId=71111705995)
 
 ---
 **<h2>HUD 구매 시 주의점</h2>**

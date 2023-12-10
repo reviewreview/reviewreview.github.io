@@ -28,7 +28,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>12,900원</span>
-- 리뷰수: 60200  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7263134713&traceid=V0-153&itemId=18505026094&vendorItemId=70207312830)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7263134713&traceid=V0-153&itemId=18505026094&vendorItemId=70207312830)
 
 ---
 
@@ -45,7 +46,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 50%  52,500   원
 - 가격: <span style='color:red'>24,650원</span>
-- 리뷰수: 28199  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=2567073556&vendorItemId=70559501110)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=2567073556&vendorItemId=70559501110)
 
 ---
 
@@ -62,7 +64,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 46%  35,000   원
 - 가격: <span style='color:red'>19,850원</span>
-- 리뷰수: 28199  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774843&traceid=V0-153&itemId=17398140375&vendorItemId=84567593728)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774843&traceid=V0-153&itemId=17398140375&vendorItemId=84567593728)
 
 ---
 
@@ -79,7 +82,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 27%  17,800   원
 - 가격: <span style='color:red'>9,900원</span>
-- 리뷰수: 112644  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402225077&traceid=V0-153&itemId=19161840491&vendorItemId=86280396859)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7402225077&traceid=V0-153&itemId=19161840491&vendorItemId=86280396859)
 
 ---
 
@@ -96,7 +100,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 36%  31,200   원
 - 가격: <span style='color:red'>12,270원</span>
-- 리뷰수: 7873  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6175248885&traceid=V0-153&itemId=12082466565&vendorItemId=86423385326)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6175248885&traceid=V0-153&itemId=12082466565&vendorItemId=86423385326)
 
 ---
 
@@ -113,7 +118,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 54%  87,500   원
 - 가격: <span style='color:red'>12,330원</span>
-- 리뷰수: 28199  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5267527589&traceid=V0-153&itemId=7499295813&vendorItemId=86194541233)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5267527589&traceid=V0-153&itemId=7499295813&vendorItemId=86194541233)
 
 ---
 
@@ -130,7 +136,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 50%  52,500   원
 - 가격: <span style='color:red'>9,830원</span>
-- 리뷰수: 28199  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=43049852&traceid=V0-153&itemId=155859391&vendorItemId=3365641710)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=43049852&traceid=V0-153&itemId=155859391&vendorItemId=3365641710)
 
 ---
 
@@ -147,7 +154,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 31%  14,600   원
 - 가격: <span style='color:red'>7,560원</span>
-- 리뷰수: 7228  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6723412911&traceid=V0-153&itemId=15642807222&vendorItemId=85340478886)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6723412911&traceid=V0-153&itemId=15642807222&vendorItemId=85340478886)
 
 ---
 
@@ -164,7 +172,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 60%  30,000   원
 - 가격: <span style='color:red'>5,540원</span>
-- 리뷰수: 8714  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5655728570&traceid=V0-153&itemId=9268777962&vendorItemId=76554318368)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5655728570&traceid=V0-153&itemId=9268777962&vendorItemId=76554318368)
 
 ---
 
@@ -181,7 +190,8 @@ LED형광등은 기존의 백열등이나 형광등에 비해 다양한 장점�
 
 - 할인율과 원래가격: 10%  17,900   원
 - 가격: <span style='color:red'>8,630원</span>
-- 리뷰수: 7637  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=218609921&vendorItemId=3528464840)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1494774720&traceid=V0-153&itemId=218609921&vendorItemId=3528464840)
 
 ---
 **LED형광등 구매 시 주의점**

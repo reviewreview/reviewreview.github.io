@@ -29,7 +29,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>26,220원</span>
-- 리뷰수: 4759  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 ---
 
@@ -46,7 +47,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 22%  329,000   원
 - 가격: <span style='color:red'>113,000원</span>
-- 리뷰수: 16313  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -63,7 +65,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 즉시할인가 77%  199,000   원
 - 가격: <span style='color:red'>89,000원</span>
-- 리뷰수: 1374  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 ---
 
@@ -80,7 +83,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 22%  369,000   원
 - 가격: <span style='color:red'>191,400원</span>
-- 리뷰수: 4759  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 ---
 
@@ -97,7 +101,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 45%  69,800   원
 - 가격: <span style='color:red'>149,000원</span>
-- 리뷰수: 6094  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 ---
 
@@ -114,7 +119,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>184,900원</span>
-- 리뷰수: 716  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604)
 
 ---
 
@@ -131,7 +137,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>301,400원</span>
-- 리뷰수: 4759  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
 
 ---
 
@@ -148,7 +155,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 28%  329,000   원
 - 가격: <span style='color:red'>117,680원</span>
-- 리뷰수: 16313  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 ---
 
@@ -165,7 +173,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>8,830원</span>
-- 리뷰수: 920  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 ---
 
@@ -182,7 +191,8 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>41,500원</span>
-- 리뷰수: 4759  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
 
 ---
 ## SSD 구매 시 주의점

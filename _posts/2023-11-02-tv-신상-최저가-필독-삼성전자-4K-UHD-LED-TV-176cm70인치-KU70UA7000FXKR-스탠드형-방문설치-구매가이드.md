@@ -41,7 +41,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 22%  48,900   원
 - 가격: <span style='color:red'>1,059,000원</span>
-- 리뷰수: 2350  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 ---
 
@@ -58,7 +59,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 35%  64,600   원
 - 가격: <span style='color:red'>967,160원</span>
-- 리뷰수: 1276  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 ---
 
@@ -75,7 +77,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 쿠폰할인가 44%  69,800   원
 - 가격: <span style='color:red'>142,500원</span>
-- 리뷰수: 4890  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 ---
 
@@ -92,7 +95,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 쿠폰할인가 7%  42,000   원
 - 가격: <span style='color:red'>118,760원</span>
-- 리뷰수: 2883  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -109,7 +113,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 즉시할인가 33%  89,700   원
 - 가격: <span style='color:red'>2,190,000원</span>
-- 리뷰수: 23  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685187200&traceid=V0-153&itemId=20536060179&vendorItemId=87612825902)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685187200&traceid=V0-153&itemId=20536060179&vendorItemId=87612825902)
 
 ---
 
@@ -126,7 +131,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 28%  69,000   원
 - 가격: <span style='color:red'>1,550,000원</span>
-- 리뷰수: 3  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685181792&traceid=V0-153&itemId=20536031242&vendorItemId=87612800511)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685181792&traceid=V0-153&itemId=20536031242&vendorItemId=87612800511)
 
 ---
 
@@ -143,7 +149,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 60%  44,800   원
 - 가격: <span style='color:red'>1,353,420원</span>
-- 리뷰수: 6109  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7294533106&traceid=V0-153&itemId=18651684019&vendorItemId=85786528404)
 
 ---
 
@@ -160,7 +167,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>1,330,000원</span>
-- 리뷰수: 2406  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 ---
 
@@ -177,7 +185,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 쿠폰할인가 17%  114,270   원
 - 가격: <span style='color:red'>2,993,000원</span>
-- 리뷰수: 490  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390997499&traceid=V0-153&itemId=19108751847&vendorItemId=87348349164)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390997499&traceid=V0-153&itemId=19108751847&vendorItemId=87348349164)
 
 ---
 
@@ -194,7 +203,8 @@ TV는 이러한 장점으로 인해 현대 사회에서 중요한 역할을 하�
 
 - 할인율과 원래가격: 40%  33,000   원
 - 가격: <span style='color:red'>635,550원</span>
-- 리뷰수: 3914  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361431&vendorItemId=85282102119)
 
 ---
 **TV 구매 시 주의점**

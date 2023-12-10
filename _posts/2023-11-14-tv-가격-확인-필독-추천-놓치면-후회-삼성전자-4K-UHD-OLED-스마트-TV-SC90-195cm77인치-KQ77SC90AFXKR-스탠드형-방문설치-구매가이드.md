@@ -39,7 +39,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>3,890,000원</span>
-- 리뷰수: 4534  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249262438&traceid=V0-153&itemId=18436462598&vendorItemId=85577776261)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249262438&traceid=V0-153&itemId=18436462598&vendorItemId=85577776261)
 
 ---
 
@@ -56,7 +57,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 쿠폰할인가 32%  329,000   원
 - 가격: <span style='color:red'>124,030원</span>
-- 리뷰수: 16250  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 ---
 
@@ -73,7 +75,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 18%  329,000   원
 - 가격: <span style='color:red'>919,100원</span>
-- 리뷰수: 4534  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361435&vendorItemId=85282102168)
 
 ---
 
@@ -90,7 +93,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 21%  369,000   원
 - 가격: <span style='color:red'>250,640원</span>
-- 리뷰수: 4534  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
 
 ---
 
@@ -107,7 +111,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>2,260,000원</span>
-- 리뷰수: 4534  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7533997303&traceid=V0-153&itemId=19789243561&vendorItemId=86891897298)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7533997303&traceid=V0-153&itemId=19789243561&vendorItemId=86891897298)
 
 ---
 
@@ -124,7 +129,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 즉시할인가 64%  198,000   원
 - 가격: <span style='color:red'>1,570,000원</span>
-- 리뷰수: 904  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141287085&traceid=V0-153&itemId=17929637880&vendorItemId=85091959569)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141287085&traceid=V0-153&itemId=17929637880&vendorItemId=85091959569)
 
 ---
 
@@ -141,7 +147,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 23%  469,000   원
 - 가격: <span style='color:red'>204,780원</span>
-- 리뷰수: 4534  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116119970&traceid=V0-153&itemId=17804333942&vendorItemId=3011945885)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116119970&traceid=V0-153&itemId=17804333942&vendorItemId=3011945885)
 
 ---
 
@@ -158,7 +165,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 쿠폰할인가 32%  329,000   원
 - 가격: <span style='color:red'>1,300,000원</span>
-- 리뷰수: 16250  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361425&vendorItemId=85282102042)
 
 ---
 
@@ -175,7 +183,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 즉시할인가 70%  198,000   원
 - 가격: <span style='color:red'>5,650,000원</span>
-- 리뷰수: 711  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141282246&traceid=V0-153&itemId=17929614956&vendorItemId=85091936070)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7141282246&traceid=V0-153&itemId=17929614956&vendorItemId=85091936070)
 
 ---
 
@@ -192,7 +201,8 @@ TV는 가족과 함께 즐길 수 있는 문화생활을 제공합니다. 가족
 
 - 할인율과 원래가격: 20%  429,000   원
 - 가격: <span style='color:red'>1,400,000원</span>
-- 리뷰수: 4534  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361426&vendorItemId=85282102054)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7185589836&traceid=V0-153&itemId=18131361426&vendorItemId=85282102054)
 
 ---
 **TV 구매시 주의점**

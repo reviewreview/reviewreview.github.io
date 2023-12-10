@@ -49,7 +49,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>19,700원</span>
-- 리뷰수: 85  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=18179066553&vendorItemId=85328147353)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=18179066553&vendorItemId=85328147353)
 
 ---
 
@@ -66,7 +67,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>25,000원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71939434&traceid=V0-153&itemId=15135173232&vendorItemId=86601373192)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71939434&traceid=V0-153&itemId=15135173232&vendorItemId=86601373192)
 
 ---
 
@@ -83,7 +85,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 77%  352,000   원
 - 가격: <span style='color:red'>8,140원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=87752899&traceid=V0-153&itemId=275133831&vendorItemId=3694007267)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=87752899&traceid=V0-153&itemId=275133831&vendorItemId=3694007267)
 
 ---
 
@@ -100,7 +103,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>10,100원</span>
-- 리뷰수: 386  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=17657649305&vendorItemId=84823167589)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=17657649305&vendorItemId=84823167589)
 
 ---
 
@@ -117,7 +121,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>10,480원</span>
-- 리뷰수: 997  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384624016&traceid=V0-153&itemId=19079160399&vendorItemId=82570401038)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7384624016&traceid=V0-153&itemId=19079160399&vendorItemId=82570401038)
 
 ---
 
@@ -134,7 +139,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 85%  300,000   원
 - 가격: <span style='color:red'>17,810원</span>
-- 리뷰수: 1421  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1930596358&traceid=V0-153&itemId=3277367746&vendorItemId=82376258649)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1930596358&traceid=V0-153&itemId=3277367746&vendorItemId=82376258649)
 
 ---
 
@@ -151,7 +157,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,800원</span>
-- 리뷰수: 9  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=19170745845&vendorItemId=86288953071)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=19170745845&vendorItemId=86288953071)
 
 ---
 
@@ -168,7 +175,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>17,230원</span>
-- 리뷰수: 1396  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=235709189&traceid=V0-153&itemId=14734168668&vendorItemId=77051815663)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=235709189&traceid=V0-153&itemId=14734168668&vendorItemId=77051815663)
 
 ---
 
@@ -185,7 +193,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 71%  99,900   원
 - 가격: <span style='color:red'>18,040원</span>
-- 리뷰수: 98  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=69289526&traceid=V0-153&itemId=231978036&vendorItemId=3566184968)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=69289526&traceid=V0-153&itemId=231978036&vendorItemId=3566184968)
 
 ---
 
@@ -202,7 +211,8 @@ AHC 선스틱은 뛰어난 자외선 차단 효과와 편리한 사용성, 자�
 
 - 할인율과 원래가격: 79%  120,000   원
 - 가격: <span style='color:red'>15,780원</span>
-- 리뷰수: 2438  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=87752899&traceid=V0-153&itemId=20329826715&vendorItemId=87414991964)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=87752899&traceid=V0-153&itemId=20329826715&vendorItemId=87414991964)
 
 ---
 **AHC 선스틱 구매 시 주의점**

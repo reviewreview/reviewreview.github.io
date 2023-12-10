@@ -35,7 +35,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>19,700원</span>
-- 리뷰수: 85  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=18179066553&vendorItemId=85328147353)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=18179066553&vendorItemId=85328147353)
 
 ---
 
@@ -52,7 +53,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>10,100원</span>
-- 리뷰수: 386  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=17657649305&vendorItemId=84823167589)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=17657649305&vendorItemId=84823167589)
 
 ---
 
@@ -69,7 +71,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>26,500원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595559315&traceid=V0-153&itemId=14900607527&vendorItemId=86517446865)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595559315&traceid=V0-153&itemId=14900607527&vendorItemId=86517446865)
 
 ---
 
@@ -86,7 +89,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>8,140원</span>
-- 리뷰수: 9  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=87752899&traceid=V0-153&itemId=275133831&vendorItemId=3694007267)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=87752899&traceid=V0-153&itemId=275133831&vendorItemId=3694007267)
 
 ---
 
@@ -103,7 +107,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>17,810원</span>
-- 리뷰수: 1396  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1930596358&traceid=V0-153&itemId=3277367746&vendorItemId=82376258649)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1930596358&traceid=V0-153&itemId=3277367746&vendorItemId=82376258649)
 
 ---
 
@@ -120,7 +125,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>18,040원</span>
-- 리뷰수: 77  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=69289526&traceid=V0-153&itemId=231978036&vendorItemId=3566184968)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=69289526&traceid=V0-153&itemId=231978036&vendorItemId=3566184968)
 
 ---
 
@@ -137,7 +143,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>28,800원</span>
-- 리뷰수: 2  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=19170745845&vendorItemId=86288953071)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7088737172&traceid=V0-153&itemId=19170745845&vendorItemId=86288953071)
 
 ---
 
@@ -154,7 +161,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 즉시할인가 75%  146,000   원
 - 가격: <span style='color:red'>17,230원</span>
-- 리뷰수: 77  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=235709189&traceid=V0-153&itemId=14734168668&vendorItemId=77051815663)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=235709189&traceid=V0-153&itemId=14734168668&vendorItemId=77051815663)
 
 ---
 
@@ -171,7 +179,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 79%  120,000   원
 - 가격: <span style='color:red'>9,910원</span>
-- 리뷰수: 2438  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1930596358&traceid=V0-153&itemId=3277367745&vendorItemId=86782290207)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1930596358&traceid=V0-153&itemId=3277367745&vendorItemId=86782290207)
 
 ---
 
@@ -188,7 +197,8 @@ AHC선스틱은 피부에 자극이 적은 순한 성분을 사용했습니다. 
 
 - 할인율과 원래가격: 71%  219,000   원
 - 가격: <span style='color:red'>18,690원</span>
-- 리뷰수: 77  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7510727727&traceid=V0-153&itemId=2295720246&vendorItemId=86262790704)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7510727727&traceid=V0-153&itemId=2295720246&vendorItemId=86262790704)
 
 ---
 **AHC선스틱 구매시 주의점**

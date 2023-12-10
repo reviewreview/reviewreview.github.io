@@ -63,7 +63,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>53,810원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 ---
 
@@ -80,7 +81,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>31,720원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
 
 ---
 
@@ -97,7 +99,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>53,810원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 ---
 
@@ -114,7 +117,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>110,000원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=87113518851)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=87113518851)
 
 ---
 
@@ -131,7 +135,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>70,690원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5888801421&traceid=V0-153&itemId=11630569322&vendorItemId=78905175208)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5888801421&traceid=V0-153&itemId=11630569322&vendorItemId=78905175208)
 
 ---
 
@@ -148,7 +153,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 15%  329,000   원
 - 가격: <span style='color:red'>45,250원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731292&vendorItemId=71229915570)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731292&vendorItemId=71229915570)
 
 ---
 
@@ -165,7 +171,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 15%  369,000   원
 - 가격: <span style='color:red'>59,000원</span>
-- 리뷰수: 1613  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75877210372)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75877210372)
 
 ---
 
@@ -182,7 +189,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 29%  329,000   원
 - 가격: <span style='color:red'>98,250원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 ---
 
@@ -199,7 +207,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 20%  49,800   원
 - 가격: <span style='color:red'>149,000원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 ---
 
@@ -216,7 +225,8 @@ SSD는 다양한 장점을 가지고 있지만, 용량, 연결 방식, 가격 �
 
 - 할인율과 원래가격: 쿠폰할인가 26%  329,000   원
 - 가격: <span style='color:red'>52,250원</span>
-- 리뷰수: 15882  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 ---
 **SSD 구매 시 주의점**

@@ -49,7 +49,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 85  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -66,7 +67,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>52,600원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=85539837618)
 
 ---
 
@@ -83,7 +85,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 77%  352,000   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 0  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -100,7 +103,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 386  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
 
 ---
 
@@ -117,7 +121,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>32,800원</span>
-- 리뷰수: 997  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240774049&traceid=V0-153&itemId=18396925476&vendorItemId=85539845506)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240774049&traceid=V0-153&itemId=18396925476&vendorItemId=85539845506)
 
 ---
 
@@ -134,7 +139,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 85%  300,000   원
 - 가격: <span style='color:red'>27,600원</span>
-- 리뷰수: 1421  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4354880145&traceid=V0-153&itemId=17910803692&vendorItemId=72423666435)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4354880145&traceid=V0-153&itemId=17910803692&vendorItemId=72423666435)
 
 ---
 
@@ -151,7 +157,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>20,000원</span>
-- 리뷰수: 9  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1321463553&traceid=V0-153&itemId=20473572706&vendorItemId=5270800751)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1321463553&traceid=V0-153&itemId=20473572706&vendorItemId=5270800751)
 
 ---
 
@@ -168,7 +175,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>34,230원</span>
-- 리뷰수: 1396  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=8056743069&vendorItemId=75539051384)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=8056743069&vendorItemId=75539051384)
 
 ---
 
@@ -185,7 +193,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 71%  99,900   원
 - 가격: <span style='color:red'>20,480원</span>
-- 리뷰수: 98  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470528542&traceid=V0-153&itemId=19351531900&vendorItemId=86277390208)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6470528542&traceid=V0-153&itemId=19351531900&vendorItemId=86277390208)
 
 ---
 
@@ -202,7 +211,8 @@ TS샴푸는 500g 용량의 가격이 30,900원으로, 타사 탈모샴푸에 비
 
 - 할인율과 원래가격: 79%  120,000   원
 - 가격: <span style='color:red'>68,670원</span>
-- 리뷰수: 2438  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6760621482&traceid=V0-153&itemId=15843291226&vendorItemId=86984953752)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6760621482&traceid=V0-153&itemId=15843291226&vendorItemId=86984953752)
 
 ---
 **TS샴푸 구매 시 주의점**
