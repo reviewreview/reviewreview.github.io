@@ -31,7 +31,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 1. 마하링크 Ultra HDMI Ver2.1 8K 케이블, 3m, 1개
 
-![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3667803631406052-ec199dd3-de62-4a3e-8857-0f0c0fc5e3c4.jpg)
+[![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3667803631406052-ec199dd3-de62-4a3e-8857-0f0c0fc5e3c4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026690&vendorItemId=4379922833)
 
 
 👍 [마하링크 Ultra HDMI Ver2.1 8K 케이블, 3m, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026690&vendorItemId=4379922833) 👌 
@@ -49,7 +49,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 2. 홈플래닛 UHD 8K HDMI v2.1 케이블 (디지털 노이즈 필터 적용), 1개, 2m
 
-![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1078476913291191-852d4b6e-1151-45dd-8c3d-6b581d7ec2cf.jpg)
+[![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1078476913291191-852d4b6e-1151-45dd-8c3d-6b581d7ec2cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326733230&traceid=V0-153&itemId=13212763799&vendorItemId=80471181733)
 
 
 👍 [홈플래닛 UHD 8K HDMI v2.1 케이블 (디지털 노이즈 필터 적용), 1개, 2m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326733230&traceid=V0-153&itemId=13212763799&vendorItemId=80471181733) 👌 
@@ -67,7 +67,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 3. 넥스트 HDMI 2.1 UHD 8K 고급형 케이블, 1개, 1m
 
-![hdmi케이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/02/18/17/4/e0fc51b0-e363-4912-bdb0-be2fcda24780.jpg)
+[![hdmi케이블 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/02/18/17/4/e0fc51b0-e363-4912-bdb0-be2fcda24780.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1275068649&traceid=V0-153&itemId=2280980290&vendorItemId=70278102618)
 
 
 👍 [넥스트 HDMI 2.1 UHD 8K 고급형 케이블, 1개, 1m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1275068649&traceid=V0-153&itemId=2280980290&vendorItemId=70278102618) 👌 
@@ -85,7 +85,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 4. 코드웨이 HDMI 2 1v UHD 8K 케이블, 1개, 1.5m
 
-![hdmi케이블 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/729764497502452-a40d7d05-ac70-4b10-83d3-ec0f7b98bcd3.jpg)
+[![hdmi케이블 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/729764497502452-a40d7d05-ac70-4b10-83d3-ec0f7b98bcd3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133)
 
 
 👍 [코드웨이 HDMI 2 1v UHD 8K 케이블, 1개, 1.5m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7525738266&vendorItemId=74812944133) 👌 
@@ -103,7 +103,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 5. 마하링크 Ultra HDMI Ver2.1 8K 케이블, 1.8m, 1개
 
-![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3667803631406052-ec199dd3-de62-4a3e-8857-0f0c0fc5e3c4.jpg)
+[![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3667803631406052-ec199dd3-de62-4a3e-8857-0f0c0fc5e3c4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026649&vendorItemId=4379922714)
 
 
 👍 [마하링크 Ultra HDMI Ver2.1 8K 케이블, 1.8m, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=185440589&traceid=V0-153&itemId=530026649&vendorItemId=4379922714) 👌 
@@ -121,7 +121,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 6. 만듦 HDMI 2.1 UHD 8K 60Hz 케이블, 1개, 1m
 
-![hdmi케이블 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1859753102496322-4d9d8b48-a95a-4af3-a139-e2d5aab7950d.jpg)
+[![hdmi케이블 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1859753102496322-4d9d8b48-a95a-4af3-a139-e2d5aab7950d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5258006001&traceid=V0-153&itemId=7463595012&vendorItemId=74754448079)
 
 
 👍 [만듦 HDMI 2.1 UHD 8K 60Hz 케이블, 1개, 1m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5258006001&traceid=V0-153&itemId=7463595012&vendorItemId=74754448079) 👌 
@@ -139,7 +139,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 7. 레토 4K UHD TV 모니터 노트북 겸용 HDMI V2.0 케이블 LHM-V20M, 1개, 3m
 
-![hdmi케이블 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/03/19/9/0/eac29f20-f8e4-427b-8102-01c4b5379d1c.jpg)
+[![hdmi케이블 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/03/19/9/0/eac29f20-f8e4-427b-8102-01c4b5379d1c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=199761771&traceid=V0-153&itemId=579240357&vendorItemId=4517711790)
 
 
 👍 [레토 4K UHD TV 모니터 노트북 겸용 HDMI V2.0 케이블 LHM-V20M, 1개, 3m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=199761771&traceid=V0-153&itemId=579240357&vendorItemId=4517711790) 👌 
@@ -157,7 +157,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 8. 코드웨이 HDMI 2.1v UHD 8K 케이블, 1개, 5m
 
-![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1687040118182286-bdb6d0d1-68cc-4500-8c14-efd8f223d65d.jpg)
+[![hdmi케이블 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1687040118182286-bdb6d0d1-68cc-4500-8c14-efd8f223d65d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7501036218&vendorItemId=74791792031)
 
 
 👍 [코드웨이 HDMI 2.1v UHD 8K 케이블, 1개, 5m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5268128572&traceid=V0-153&itemId=7501036218&vendorItemId=74791792031) 👌 
@@ -175,7 +175,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 9. 넥시 8K UHD HDMI V2.1 모니터케이블, 1개, 1m
 
-![hdmi케이블 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/07/01/10/0/43f41669-e981-4724-b79d-2cd824fa359d.jpg)
+[![hdmi케이블 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2020/07/01/10/0/43f41669-e981-4724-b79d-2cd824fa359d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1768219844&traceid=V0-153&itemId=3010860557&vendorItemId=70999059451)
 
 
 👍 [넥시 8K UHD HDMI V2.1 모니터케이블, 1개, 1m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1768219844&traceid=V0-153&itemId=3010860557&vendorItemId=70999059451) 👌 
@@ -193,7 +193,7 @@ HDMI 케이블은 최대 100m까지 전송이 가능합니다. 따라서, 긴 �
 
 ## 10. 베이스어스 HDMI 2.1v UHD 8K 초고해상도 케이블, 1개, 0.5m
 
-![hdmi케이블 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1743826440850201-65e09ce8-5652-4e0f-b857-12f44bb0b47d.jpg)
+[![hdmi케이블 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1743826440850201-65e09ce8-5652-4e0f-b857-12f44bb0b47d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5723498336&traceid=V0-153&itemId=20536582513&vendorItemId=87613289266)
 
 
 👍 [베이스어스 HDMI 2.1v UHD 8K 초고해상도 케이블, 1개, 0.5m <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5723498336&traceid=V0-153&itemId=20536582513&vendorItemId=87613289266) 👌 

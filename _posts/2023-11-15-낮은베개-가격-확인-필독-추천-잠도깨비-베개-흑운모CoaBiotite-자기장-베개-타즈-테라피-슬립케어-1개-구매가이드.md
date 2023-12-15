@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 잠도깨비 베개 흑운모(Coa-Biotite®) 자기장 베개, 타즈 테라피 슬립케어, 1개
 
-![낮은베개 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0bb8/89c673031707bb483f5b0315555132a76b99325e365dc5bbc56206bdaac3.jpg)
+[![낮은베개 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0bb8/89c673031707bb483f5b0315555132a76b99325e365dc5bbc56206bdaac3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679515206&traceid=V0-153&itemId=20508135247&vendorItemId=81305814191)
 
 
 👍 [잠도깨비 베개 흑운모(Coa-Biotite®) 자기장 베개, 타즈 테라피 슬립케어, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7679515206&traceid=V0-153&itemId=20508135247&vendorItemId=81305814191) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 코멧 홈 베이직 라텍스 경추형, 아이보리, 1개
 
-![낮은베개 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/544126605491904-bc85fa0d-5ffd-47b8-b72a-daab240a1b69.jpg)
+[![낮은베개 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/544126605491904-bc85fa0d-5ffd-47b8-b72a-daab240a1b69.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6718528883&traceid=V0-153&itemId=15620147295&vendorItemId=82837868322)
 
 
 👍 [코멧 홈 베이직 라텍스 경추형, 아이보리, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6718528883&traceid=V0-153&itemId=15620147295&vendorItemId=82837868322) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 클라르하임 소프트슬립 저데니아 낮은베개, 화이트, 1개
 
-![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/41997829426941-213d12c7-ebd6-45e4-a9a7-0e5eee6f6ceb.jpg)
+[![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/41997829426941-213d12c7-ebd6-45e4-a9a7-0e5eee6f6ceb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5625576157&traceid=V0-153&itemId=9133169389&vendorItemId=76419173826)
 
 
 👍 [클라르하임 소프트슬립 저데니아 낮은베개, 화이트, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5625576157&traceid=V0-153&itemId=9133169389&vendorItemId=76419173826) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 리브너스 진짜 낮은베개 5cm 거북목 편안함 꿀잠, 1개
 
-![낮은베개 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bebe/6ec2dba22b74ea7c67e091a662dea89b24b0178aacd6aed39afb6341177d.png)
+[![낮은베개 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bebe/6ec2dba22b74ea7c67e091a662dea89b24b0178aacd6aed39afb6341177d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7182942664&traceid=V0-153&itemId=18119614442&vendorItemId=86351616277)
 
 
 👍 [리브너스 진짜 낮은베개 5cm 거북목 편안함 꿀잠, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7182942664&traceid=V0-153&itemId=18119614442&vendorItemId=86351616277) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 씨클라우드 경추베개 1+1 빨아쓰는 워셔블 마약경추베개 거북목 일자목 목주름방지 목베개, 그레이, 2개
 
-![낮은베개 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bcf3/866b00013c42115be94a64b31873d0735a17ddc6fd625d884489fce0be5c.jpg)
+[![낮은베개 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bcf3/866b00013c42115be94a64b31873d0735a17ddc6fd625d884489fce0be5c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7223258930&traceid=V0-153&itemId=18310479125&vendorItemId=70167477885)
 
 
 👍 [씨클라우드 경추베개 1+1 빨아쓰는 워셔블 마약경추베개 거북목 일자목 목주름방지 목베개, 그레이, 2개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7223258930&traceid=V0-153&itemId=18310479125&vendorItemId=70167477885) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. Kcwen 라텍스 베개 목편한 경추 배게 푹신한 낮은 베게, 흰색, 1개
 
-![낮은베개 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2ba8/196a08b2b6ec4cb240e5ed7912703a83c85b696f2ce4f76923c879061bbc.jpg)
+[![낮은베개 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2ba8/196a08b2b6ec4cb240e5ed7912703a83c85b696f2ce4f76923c879061bbc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7381564390&traceid=V0-153&itemId=19064318453&vendorItemId=86187160112)
 
 
 👍 [Kcwen 라텍스 베개 목편한 경추 배게 푹신한 낮은 베게, 흰색, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7381564390&traceid=V0-153&itemId=19064318453&vendorItemId=86187160112) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 마르셀린 베이직 알러쉴드 일반 베개솜 낮은형, 화이트, 1개
 
-![낮은베개 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3373121343584965-9953f21f-9ae1-49e3-b8a8-c8ea4d55be17.jpg)
+[![낮은베개 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3373121343584965-9953f21f-9ae1-49e3-b8a8-c8ea4d55be17.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2128844602&traceid=V0-153&itemId=3613182349&vendorItemId=71598820818)
 
 
 👍 [마르셀린 베이직 알러쉴드 일반 베개솜 낮은형, 화이트, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2128844602&traceid=V0-153&itemId=3613182349&vendorItemId=71598820818) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 마롤로뜨 빨아쓰는 낮은 베개, 빨아쓰는베개_그레이, 1개
 
-![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/12/10/2/d34083e7-347e-4c9b-bd81-c7d0e23d48da.jpg)
+[![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/12/10/2/d34083e7-347e-4c9b-bd81-c7d0e23d48da.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6674222934&traceid=V0-153&itemId=15366068940&vendorItemId=86554826447)
 
 
 👍 [마롤로뜨 빨아쓰는 낮은 베개, 빨아쓰는베개_그레이, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6674222934&traceid=V0-153&itemId=15366068940&vendorItemId=86554826447) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 클라르하임 소프트슬립 저데니아 낮은베개, 화이트, 1개
 
-![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/41997829426941-213d12c7-ebd6-45e4-a9a7-0e5eee6f6ceb.jpg)
+[![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/41997829426941-213d12c7-ebd6-45e4-a9a7-0e5eee6f6ceb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5625576157&traceid=V0-153&itemId=9133169389&vendorItemId=76419173826)
 
 
 👍 [클라르하임 소프트슬립 저데니아 낮은베개, 화이트, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5625576157&traceid=V0-153&itemId=9133169389&vendorItemId=76419173826) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 아카시아 프리미엄 라텍스 베개 일반형 + 속커버, 화이트
 
-![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2115769233851164-9bf455c9-9754-4f92-936d-8ab9c63f623f.jpg)
+[![낮은베개 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2115769233851164-9bf455c9-9754-4f92-936d-8ab9c63f623f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=33210206&traceid=V0-153&itemId=124769016&vendorItemId=3251002423)
 
 
 👍 [아카시아 프리미엄 라텍스 베개 일반형 + 속커버, 화이트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=33210206&traceid=V0-153&itemId=124769016&vendorItemId=3251002423) 👌 

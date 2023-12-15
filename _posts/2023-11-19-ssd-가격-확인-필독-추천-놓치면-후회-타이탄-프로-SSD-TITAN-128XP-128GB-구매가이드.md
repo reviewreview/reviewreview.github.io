@@ -21,7 +21,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 1. 타이탄 프로 SSD TITAN 128XP, 128GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 
 👍 [타이탄 프로 SSD TITAN 128XP, 128GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431) 👌 
@@ -39,7 +39,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 2. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -57,7 +57,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 3. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -75,7 +75,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 4. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234) 👌 
@@ -93,7 +93,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 5. 마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f187/ef1c8f3d18096460dd2c6acc6460c997799f98513c3b21376f9fb3dc2ce7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557)
 
 
 👍 [마이크론 Crucial P3 Plus M.2 NVMe SSD 2TB 대원씨티에스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6838183257&traceid=V0-153&itemId=16252863086&vendorItemId=83446015557) 👌 
@@ -111,7 +111,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 6. 씨게이트 One Touch HDD 외장하드STHP4000402 데이터복구+암호화 기능+파우치+USB케이블, 4TB, 라이트블루
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050415701232894-8d18889b-6f61-4449-80a7-a652e2d043f3.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050415701232894-8d18889b-6f61-4449-80a7-a652e2d043f3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604)
 
 
 👍 [씨게이트 One Touch HDD 외장하드STHP4000402 데이터복구+암호화 기능+파우치+USB케이블, 4TB, 라이트블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=648631446&vendorItemId=4686502604) 👌 
@@ -129,7 +129,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 7. 리뷰안 SATA3 노트북 PC SSD, 1TB, 900G비즈
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7550/f66f11781222a52370ce45e583a6fd1a967b57977d5e9f40d647d5f509ef.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7550/f66f11781222a52370ce45e583a6fd1a967b57977d5e9f40d647d5f509ef.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
 
 
 👍 [리뷰안 SATA3 노트북 PC SSD, 1TB, 900G비즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222) 👌 
@@ -147,7 +147,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 8. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 
@@ -165,7 +165,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 9. M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1052095564379969-83ffebd9-3696-4721-b5d5-1d1af3124f8b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855)
 
 
 👍 [M.2 SATA PCI-Express SSD 변환 아답터 카드 데스크탑용 NVMe NGFF 겸용 LS-PCIE-M2SATAN <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5240021570&traceid=V0-153&itemId=7399007603&vendorItemId=74690028855) 👌 
@@ -183,7 +183,7 @@ SSD는 하드 디스크 드라이브(HDD)에 비해 다음과 같은 장점이 �
 
 ## 10. 기가바이트 GIGABYTE 480GB SATA, SSD
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
 
 
 👍 [기가바이트 GIGABYTE 480GB SATA, SSD <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583) 👌 

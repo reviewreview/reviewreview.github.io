@@ -27,7 +27,7 @@ pin: true
 
 ## 1. MSI GeForce RTX 3060 VENTUS 2X 8GB OC
 
-![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fcd5/db6ae02ab8d6d6e4b44675b2adb032514733b2a19d6e77bc994b8769e468.jpg)
+[![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fcd5/db6ae02ab8d6d6e4b44675b2adb032514733b2a19d6e77bc994b8769e468.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093353391&traceid=V0-153&itemId=17683434375&vendorItemId=85089806193)
 
 
 👍 [MSI GeForce RTX 3060 VENTUS 2X 8GB OC <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093353391&traceid=V0-153&itemId=17683434375&vendorItemId=85089806193) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. MSI 지포스 GTX 1660 SUPER 벤투스 S OC 그래픽카드 D6 6GB, N1660SVX
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ceb8/09a448467edb45b696f194a0586f39ee13c92d20c1e446a6090cddd4da7d.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ceb8/09a448467edb45b696f194a0586f39ee13c92d20c1e446a6090cddd4da7d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1637460930&traceid=V0-153&itemId=2792644622&vendorItemId=85847945796)
 
 
 👍 [MSI 지포스 GTX 1660 SUPER 벤투스 S OC 그래픽카드 D6 6GB, N1660SVX <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1637460930&traceid=V0-153&itemId=2792644622&vendorItemId=85847945796) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 삼성전자 2022 갤럭시북2 프로 15.6, 그라파이트, NT950XEE-X71AG, 코어i7, 512GB, 16GB, WIN11 Home
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cbed/f89cb1c5bc64ed1648f9fcaeefb9e25fc00bf05c93e2896ec9aae5bff396.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cbed/f89cb1c5bc64ed1648f9fcaeefb9e25fc00bf05c93e2896ec9aae5bff396.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7198317198&traceid=V0-153&itemId=18421838915&vendorItemId=81208651725)
 
 
 👍 [삼성전자 2022 갤럭시북2 프로 15.6, 그라파이트, NT950XEE-X71AG, 코어i7, 512GB, 16GB, WIN11 Home <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7198317198&traceid=V0-153&itemId=18421838915&vendorItemId=81208651725) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. MSI 지포스 RTX 3060 벤투스 2X OC D6 12GB 그래픽카드 (MSI코리아)
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a3c3/6b979c2e698ca7e58f26e62f0f94c340f4b9bc95b3eba50096b4a7861258.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a3c3/6b979c2e698ca7e58f26e62f0f94c340f4b9bc95b3eba50096b4a7861258.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6610517747&traceid=V0-153&itemId=18985380701&vendorItemId=86388031055)
 
 
 👍 [MSI 지포스 RTX 3060 벤투스 2X OC D6 12GB 그래픽카드 (MSI코리아) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6610517747&traceid=V0-153&itemId=18985380701&vendorItemId=86388031055) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 씨엠컴퓨터 인텔 i5 디아블로4 기획전 D 멀티 게이밍컴퓨터, D-03, 기본형
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5625/81f659698e007935649eed5df346ebac9bc718ca0b21a2161472a060d258.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5625/81f659698e007935649eed5df346ebac9bc718ca0b21a2161472a060d258.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7542770883&traceid=V0-153&itemId=19832557200&vendorItemId=87078835592)
 
 
 👍 [씨엠컴퓨터 인텔 i5 디아블로4 기획전 D 멀티 게이밍컴퓨터, D-03, 기본형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7542770883&traceid=V0-153&itemId=19832557200&vendorItemId=87078835592) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 제이엠지 씨파운드(CPOUND) 서멀구리스 CPU/써멀/방열, 5g
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c874/71e1e5ff1c65cfffff561ff3e0d553ddc4b3646e25e2eeca51b74d14d20f.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c874/71e1e5ff1c65cfffff561ff3e0d553ddc4b3646e25e2eeca51b74d14d20f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6540968739&traceid=V0-153&itemId=14563124259&vendorItemId=81805383792)
 
 
 👍 [제이엠지 씨파운드(CPOUND) 서멀구리스 CPU/써멀/방열, 5g <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6540968739&traceid=V0-153&itemId=14563124259&vendorItemId=81805383792) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. XFX 라데온 RX 6600 SWFT 210 CORE D6 8GB AMD 그래픽카드
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a659/6007f67ebfc0800b8df6aee9e73cc4d16f01f853283cb83571518871d117.jpeg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a659/6007f67ebfc0800b8df6aee9e73cc4d16f01f853283cb83571518871d117.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645963764&traceid=V0-153&itemId=20330130149&vendorItemId=86839641710)
 
 
 👍 [XFX 라데온 RX 6600 SWFT 210 CORE D6 8GB AMD 그래픽카드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645963764&traceid=V0-153&itemId=20330130149&vendorItemId=86839641710) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. MSI GeForce RTX 4060 VENTUS 2X BLACK 8G OC
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1e75/bf7430a227e065dc60ed2e963e3792b0d31d8de66617a089a685f6641ca6.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1e75/bf7430a227e065dc60ed2e963e3792b0d31d8de66617a089a685f6641ca6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7439505190&traceid=V0-153&itemId=19342277656&vendorItemId=86504515357)
 
 
 👍 [MSI GeForce RTX 4060 VENTUS 2X BLACK 8G OC <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7439505190&traceid=V0-153&itemId=19342277656&vendorItemId=86504515357) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 티피링크 Wi Fi 6 블루투스 5.0 PCIe 랜카드 데스크탑용, Archer TX3000E
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/dihqqmvg/ea1c6554d05341d1a9e0834f8528e32c.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/dihqqmvg/ea1c6554d05341d1a9e0834f8528e32c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4735857931&traceid=V0-153&itemId=6010591869&vendorItemId=73308323479)
 
 
 👍 [티피링크 Wi Fi 6 블루투스 5.0 PCIe 랜카드 데스크탑용, Archer TX3000E <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4735857931&traceid=V0-153&itemId=6010591869&vendorItemId=73308323479) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. XFX 라데온 RX 550 D5 4GB AMD 그래픽카드
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fb22/2b7f23c97557de89a8432cd5b41ea73ec706c88428554f8b01a0b635500f.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fb22/2b7f23c97557de89a8432cd5b41ea73ec706c88428554f8b01a0b635500f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7562725475&traceid=V0-153&itemId=19928294622&vendorItemId=87052722734)
 
 
 👍 [XFX 라데온 RX 550 D5 4GB AMD 그래픽카드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7562725475&traceid=V0-153&itemId=19928294622&vendorItemId=87052722734) 👌 

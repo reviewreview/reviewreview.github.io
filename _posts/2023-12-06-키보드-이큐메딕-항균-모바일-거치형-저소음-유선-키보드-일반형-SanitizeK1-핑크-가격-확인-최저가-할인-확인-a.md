@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 이큐메딕 항균 모바일 거치형 저소음 유선 키보드, 일반형, Sanitize-K1, 핑크
 
-![키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1944664829640187-7ef35ecf-35e6-4e62-8a65-59c6fb9c4ebf.jpg)
+[![키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1944664829640187-7ef35ecf-35e6-4e62-8a65-59c6fb9c4ebf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6196887490&traceid=V0-153&itemId=12270448295&vendorItemId=79540887889)
 
 
 👍 [이큐메딕 항균 모바일 거치형 저소음 유선 키보드, 일반형, Sanitize-K1, 핑크 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6196887490&traceid=V0-153&itemId=12270448295&vendorItemId=79540887889) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 로지텍 USB 유선 키보드 K120, 일반형, 검정
 
-![키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2017/11/06/3335653163/bbfdce6d-71b1-4c0d-b06b-b20a6e592199.jpg)
+[![키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/product/image/vendoritem/2017/11/06/3335653163/bbfdce6d-71b1-4c0d-b06b-b20a6e592199.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=132687601&traceid=V0-153&itemId=390196810&vendorItemId=3335653163)
 
 
 👍 [로지텍 USB 유선 키보드 K120, 일반형, 검정 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=132687601&traceid=V0-153&itemId=390196810&vendorItemId=3335653163) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 앱코 축교환 레인보우 무빙 LED 기계식 키보드 갈축, 블랙, K560, 일반형
 
-![키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3127150761816530-286ead59-0ecb-4bfc-a6c2-809d26d78dfc.jpg)
+[![키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3127150761816530-286ead59-0ecb-4bfc-a6c2-809d26d78dfc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5065639069&traceid=V0-153&itemId=6846651326&vendorItemId=74139260510)
 
 
 👍 [앱코 축교환 레인보우 무빙 LED 기계식 키보드 갈축, 블랙, K560, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5065639069&traceid=V0-153&itemId=6846651326&vendorItemId=74139260510) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 한성컴퓨터 멤브레인 게이밍 유선키보드, 일반형, GTune MBF77 Vision(블랙), 블랙
 
-![키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1166095995187142-b5a33790-1cea-4afa-b9c2-9d78bd41bc16.jpg)
+[![키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1166095995187142-b5a33790-1cea-4afa-b9c2-9d78bd41bc16.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075217003&traceid=V0-153&itemId=74635334&vendorItemId=3123702191)
 
 
 👍 [한성컴퓨터 멤브레인 게이밍 유선키보드, 일반형, GTune MBF77 Vision(블랙), 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075217003&traceid=V0-153&itemId=74635334&vendorItemId=3123702191) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 이큐메딕 항균 모바일 거치형 저소음 유선 키보드, 일반형, Sanitize-K1, 화이트
 
-![키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9010742175484490-3877f07b-c77f-44b8-b72e-803e4597a8b0.jpg)
+[![키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/9010742175484490-3877f07b-c77f-44b8-b72e-803e4597a8b0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6196887490&traceid=V0-153&itemId=12270448291&vendorItemId=79540887868)
 
 
 👍 [이큐메딕 항균 모바일 거치형 저소음 유선 키보드, 일반형, Sanitize-K1, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6196887490&traceid=V0-153&itemId=12270448291&vendorItemId=79540887868) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 로이체 무선 키보드 마우스 세트, RX-3100, 블랙
 
-![키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8845692907959837-008c0a11-3ff7-4010-961e-fac04273eb87.jpg)
+[![키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8845692907959837-008c0a11-3ff7-4010-961e-fac04273eb87.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=13300590&traceid=V0-153&itemId=55554979&vendorItemId=3222922777)
 
 
 👍 [로이체 무선 키보드 마우스 세트, RX-3100, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=13300590&traceid=V0-153&itemId=55554979&vendorItemId=3222922777) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 삼성전자 유선키보드 SPA-JKA1BUB + 키스킨, 일반형
 
-![키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8581216135969109-eb6c8ef0-1685-4b26-adc6-e52610b78d0f.jpg)
+[![키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/8581216135969109-eb6c8ef0-1685-4b26-adc6-e52610b78d0f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=57621830&traceid=V0-153&itemId=199730764&vendorItemId=3474768396)
 
 
 👍 [삼성전자 유선키보드 SPA-JKA1BUB + 키스킨, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=57621830&traceid=V0-153&itemId=199730764&vendorItemId=3474768396) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 앱코 축교환 레인보우 무빙 LED 기계식 키보드 적축, 블랙, K560, 일반형
 
-![키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1223427021514173-034af671-807e-4210-aa78-d2136fc9dbbf.jpg)
+[![키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1223427021514173-034af671-807e-4210-aa78-d2136fc9dbbf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5065639056&traceid=V0-153&itemId=6846651320&vendorItemId=74139260485)
 
 
 👍 [앱코 축교환 레인보우 무빙 LED 기계식 키보드 적축, 블랙, K560, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5065639056&traceid=V0-153&itemId=6846651320&vendorItemId=74139260485) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 마이크로닉스 큰글씨 한글 유선키보드 + 키스킨 세트, CPK-1, 옐로우, 일반형
 
-![키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4524579084608138-bf0bf19a-dd94-445b-883e-3da4d61b3618.jpg)
+[![키보드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4524579084608138-bf0bf19a-dd94-445b-883e-3da4d61b3618.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2143398798&traceid=V0-153&itemId=3639654137&vendorItemId=71625186118)
 
 
 👍 [마이크로닉스 큰글씨 한글 유선키보드 + 키스킨 세트, CPK-1, 옐로우, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2143398798&traceid=V0-153&itemId=3639654137&vendorItemId=71625186118) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 한성컴퓨터 멤브레인 게이밍 유선키보드, 일반형, GTune MBF77 Vision, 화이트
 
-![키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2516749177063517-03fb0ca8-53c2-4437-9eef-efbb973b74b1.jpg)
+[![키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2516749177063517-03fb0ca8-53c2-4437-9eef-efbb973b74b1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075217003&traceid=V0-153&itemId=18918159629&vendorItemId=3123702192)
 
 
 👍 [한성컴퓨터 멤브레인 게이밍 유선키보드, 일반형, GTune MBF77 Vision, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075217003&traceid=V0-153&itemId=18918159629&vendorItemId=3123702192) 👌 

@@ -27,7 +27,7 @@ pin: true
 
 ## 1. Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75
 
-![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b328/8fc25233643ad2f53edcbd5285af77732445bb34ddc0e0fab3a3524b6526.jpg)
+[![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b328/8fc25233643ad2f53edcbd5285af77732445bb34ddc0e0fab3a3524b6526.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894)
 
 
 👍 [Charm Kaiser 남성 벨트 남자 자동 허리띠 정장 캐주얼 패션 75 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7268421612&traceid=V0-153&itemId=18531043137&vendorItemId=85669606894) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. GUCCI 구찌 508797 라나울 플라워 스카프 4색상
 
-![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/235c/4d13739868015317b335788126e78b8b6553f9b9c1787c3eb8f9f0a1866f.jpeg)
+[![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/235c/4d13739868015317b335788126e78b8b6553f9b9c1787c3eb8f9f0a1866f.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6414191438&traceid=V0-153&itemId=13768395938&vendorItemId=81018990742)
 
 
 👍 [GUCCI 구찌 508797 라나울 플라워 스카프 4색상 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6414191438&traceid=V0-153&itemId=13768395938&vendorItemId=81018990742) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 3. 구찌 플로라 골저스 자스민 오 드 퍼퓸, 50ml, 1개
 
-![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/784a/76e0379732c2414e234b90d9fa35d8705ad27c7e2246bfefc1fc04bbd309.jpg)
+[![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/784a/76e0379732c2414e234b90d9fa35d8705ad27c7e2246bfefc1fc04bbd309.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193934281&traceid=V0-153&itemId=18062675288&vendorItemId=85216401073)
 
 
 👍 [구찌 플로라 골저스 자스민 오 드 퍼퓸, 50ml, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7193934281&traceid=V0-153&itemId=18062675288&vendorItemId=85216401073) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 십전십미 구쯔뱅 고급 유럽간지 엔젤패턴 패션 라운드 티셔츠 긴팔
 
-![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e181/3d468ff3d9e06f7d531d325919d6139ac48001c5faf6eec0bed5908a8db8.jpg)
+[![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e181/3d468ff3d9e06f7d531d325919d6139ac48001c5faf6eec0bed5908a8db8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=337003029&traceid=V0-153&itemId=1074902763&vendorItemId=85512709178)
 
 
 👍 [십전십미 구쯔뱅 고급 유럽간지 엔젤패턴 패션 라운드 티셔츠 긴팔 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=337003029&traceid=V0-153&itemId=1074902763&vendorItemId=85512709178) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 발렌티 카라긴팔티
 
-![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7fef/15612cc36a712c385f0ebff11e0bf875e505c9be8fcfbfef823fed957709.jpg)
+[![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7fef/15612cc36a712c385f0ebff11e0bf875e505c9be8fcfbfef823fed957709.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7623068438&traceid=V0-153&itemId=20215089401&vendorItemId=87304937134)
 
 
 👍 [발렌티 카라긴팔티 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7623068438&traceid=V0-153&itemId=20215089401&vendorItemId=87304937134) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 라온투유 격자 클러치백
 
-![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/9l4a5ble/67e36b90e6c14d3a86889835181c7514.jpg)
+[![구찌 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/9l4a5ble/67e36b90e6c14d3a86889835181c7514.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6078107414&traceid=V0-153&itemId=11253254195&vendorItemId=78530312498)
 
 
 👍 [라온투유 격자 클러치백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6078107414&traceid=V0-153&itemId=11253254195&vendorItemId=78530312498) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. [구찌] 블룸 EDP 여성용 한글택부착 정품보장, 30ml, 1개
 
-![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a2ea/53cddc44af79b714c21244ef6b89316f83976a0d1a8eb3164d21dc67fb6d.jpg)
+[![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a2ea/53cddc44af79b714c21244ef6b89316f83976a0d1a8eb3164d21dc67fb6d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=40969807&traceid=V0-153&itemId=149676154&vendorItemId=87516146963)
 
 
 👍 [[구찌] 블룸 EDP 여성용 한글택부착 정품보장, 30ml, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=40969807&traceid=V0-153&itemId=149676154&vendorItemId=87516146963) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 구찌 플로라 골저스 가드니아 오 드 퍼퓸, 100ml, 1개
 
-![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b79c/241f7a3ca0df7778769517536a13560c3546b490e417799a3887e111535d.jpg)
+[![구찌 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b79c/241f7a3ca0df7778769517536a13560c3546b490e417799a3887e111535d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6601079292&traceid=V0-153&itemId=14933574050&vendorItemId=87523984408)
 
 
 👍 [구찌 플로라 골저스 가드니아 오 드 퍼퓸, 100ml, 1개 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6601079292&traceid=V0-153&itemId=14933574050&vendorItemId=87523984408) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 간쓰리 긴팔티 M~2XL 루나
 
-![구찌 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c702/7d5b8e08434cb2c7d631ff32e126dd3f287335b5158f674a2afac0de3cd6.jpg)
+[![구찌 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c702/7d5b8e08434cb2c7d631ff32e126dd3f287335b5158f674a2afac0de3cd6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1897297782&traceid=V0-153&itemId=3223103450&vendorItemId=71210357430)
 
 
 👍 [간쓰리 긴팔티 M~2XL 루나 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1897297782&traceid=V0-153&itemId=3223103450&vendorItemId=71210357430) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 구찌 GG 플라워 실크 스카프 508796 3G001 3775
 
-![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0fbc/be835dd0eff0a1e3700f8cd4822c41f5266a730b172fd93df2d8f7d88a72.jpg)
+[![구찌 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0fbc/be835dd0eff0a1e3700f8cd4822c41f5266a730b172fd93df2d8f7d88a72.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164927084&traceid=V0-153&itemId=18038757760&vendorItemId=85193120029)
 
 
 👍 [구찌 GG 플라워 실크 스카프 508796 3G001 3775 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7164927084&traceid=V0-153&itemId=18038757760&vendorItemId=85193120029) 👌 

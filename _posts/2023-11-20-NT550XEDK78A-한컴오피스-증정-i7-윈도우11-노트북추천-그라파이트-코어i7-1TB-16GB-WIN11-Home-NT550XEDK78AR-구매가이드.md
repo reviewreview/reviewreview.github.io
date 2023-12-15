@@ -24,7 +24,7 @@ pin: true
 
 ## 1. 삼성노트북 NT550XED-K78A 한컴오피스 증정 i7 윈도우11 가성비 사무용 대학생 인강용 광시야각 동영상 업무용 노트북추천, 그라파이트, 코어i7, 1TB, 16GB, WIN11 Home, NT550XED-K78AR
 
-![노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aad9/432a686b37aa361dc535c618c5d5024e2a46dfe0fa45aa267a2d1d0d7ad2.png)
+[![노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aad9/432a686b37aa361dc535c618c5d5024e2a46dfe0fa45aa267a2d1d0d7ad2.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4692708274&traceid=V0-153&itemId=13761893691&vendorItemId=81397125516)
 
 
 👍 [삼성노트북 NT550XED-K78A 한컴오피스 증정 i7 윈도우11 가성비 사무용 대학생 인강용 광시야각 동영상 업무용 노트북추천, 그라파이트, 코어i7, 1TB, 16GB, WIN11 Home, NT550XED-K78AR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4692708274&traceid=V0-153&itemId=13761893691&vendorItemId=81397125516) 👌 
@@ -42,7 +42,7 @@ pin: true
 
 ## 2. 델 2023 인스피론 15 3535, 카본 블랙, 라이젠3, 512GB, 8GB, WIN11 Home, DN3535-W003KR
 
-![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/27/17/1/0ebada5b-1760-4ee0-b3cf-ee49b1064928.jpg)
+[![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/27/17/1/0ebada5b-1760-4ee0-b3cf-ee49b1064928.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7680442386&traceid=V0-153&itemId=20512895336&vendorItemId=87590497282)
 
 
 👍 [델 2023 인스피론 15 3535, 카본 블랙, 라이젠3, 512GB, 8GB, WIN11 Home, DN3535-W003KR <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7680442386&traceid=V0-153&itemId=20512895336&vendorItemId=87590497282) 👌 
@@ -60,7 +60,7 @@ pin: true
 
 ## 3. 에이서 2023 스위프트 GO 16 OLED, 스틸 그레이, 코어i5, 512GB, 16GB, Free DOS, SFG16-71-51BY
 
-![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/12/12/8/e50a0a4d-333d-4939-9f0c-4afcdec2c3f0.jpg)
+[![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/07/12/12/8/e50a0a4d-333d-4939-9f0c-4afcdec2c3f0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7460536544&traceid=V0-153&itemId=19444799982&vendorItemId=86555731102)
 
 
 👍 [에이서 2023 스위프트 GO 16 OLED, 스틸 그레이, 코어i5, 512GB, 16GB, Free DOS, SFG16-71-51BY <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7460536544&traceid=V0-153&itemId=19444799982&vendorItemId=86555731102) 👌 
@@ -78,7 +78,7 @@ pin: true
 
 ## 4. 레노버 2022 아이디어패드 슬림 1 15AMN7 15.6, 256GB, Free DOS, 82VG002EKR, 라이젠3, Cloud Grey (82VG), 8GB
 
-![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/298805464638389-ca1c0934-3411-4ff0-a3aa-aea9cb288b28.jpg)
+[![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/298805464638389-ca1c0934-3411-4ff0-a3aa-aea9cb288b28.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6990469893&traceid=V0-153&itemId=17107738286&vendorItemId=84281482577)
 
 
 👍 [레노버 2022 아이디어패드 슬림 1 15AMN7 15.6, 256GB, Free DOS, 82VG002EKR, 라이젠3, Cloud Grey (82VG), 8GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6990469893&traceid=V0-153&itemId=17107738286&vendorItemId=84281482577) 👌 
@@ -96,7 +96,7 @@ pin: true
 
 ## 5. 삼성전자 갤럭시북3 NT750XFT-A71AG/S 13세대 코어i7 WIN11 구매사은품 블루투스무소음마우스증정, T-A71AG(그라파이트), NT750XFT-A71A, 1TB, 16GB, WIN11 Home
 
-![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/91b6/2a31e0ed847d379d0732e4e154139bc7a42c10b8e557257aee53c17deb3d.png)
+[![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/91b6/2a31e0ed847d379d0732e4e154139bc7a42c10b8e557257aee53c17deb3d.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7352625710&traceid=V0-153&itemId=18924426929&vendorItemId=82558224397)
 
 
 👍 [삼성전자 갤럭시북3 NT750XFT-A71AG/S 13세대 코어i7 WIN11 구매사은품 블루투스무소음마우스증정, T-A71AG(그라파이트), NT750XFT-A71A, 1TB, 16GB, WIN11 Home <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7352625710&traceid=V0-153&itemId=18924426929&vendorItemId=82558224397) 👌 
@@ -114,7 +114,7 @@ pin: true
 
 ## 6. 베이직스 2022 베이직북 14 3세대, BB1422SS, 256GB, White, WIN11 Pro, 셀러론, 8GB
 
-![노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3205128823935169-9b961481-e75f-4737-87e0-40d36d9d5e98.png)
+[![노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/3205128823935169-9b961481-e75f-4737-87e0-40d36d9d5e98.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6662026640&traceid=V0-153&itemId=15294714959&vendorItemId=82515116791)
 
 
 👍 [베이직스 2022 베이직북 14 3세대, BB1422SS, 256GB, White, WIN11 Pro, 셀러론, 8GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6662026640&traceid=V0-153&itemId=15294714959&vendorItemId=82515116791) 👌 
@@ -132,7 +132,7 @@ pin: true
 
 ## 7. 삼성전자 2021 노트북 플러스2 15.6, 미스틱 그레이, NT550XDA-K24AY, 펜티엄, 256GB, 8GB, WIN11 Pro
 
-![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/10852556655695-91f41e50-1ec3-495e-af2b-e43a5b106f28.jpg)
+[![노트북 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/10852556655695-91f41e50-1ec3-495e-af2b-e43a5b106f28.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685497846&traceid=V0-153&itemId=18559007860&vendorItemId=85588900949)
 
 
 👍 [삼성전자 2021 노트북 플러스2 15.6, 미스틱 그레이, NT550XDA-K24AY, 펜티엄, 256GB, 8GB, WIN11 Pro <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685497846&traceid=V0-153&itemId=18559007860&vendorItemId=85588900949) 👌 
@@ -150,7 +150,7 @@ pin: true
 
 ## 8. LG 울트라PC 15U560 6세대 i5 지포스940M 15.6인치 윈도우10, 8GB, WIN10 Pro, 628GB, 코어i5, 화이트
 
-![노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/77b9/c66c78b9b0aa1a8441f644e002ba8108b8f0898ecfc75e7f38883a13c46d.jpg)
+[![노트북 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/77b9/c66c78b9b0aa1a8441f644e002ba8108b8f0898ecfc75e7f38883a13c46d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6359373947&traceid=V0-153&itemId=13418949659&vendorItemId=81167890910)
 
 
 👍 [LG 울트라PC 15U560 6세대 i5 지포스940M 15.6인치 윈도우10, 8GB, WIN10 Pro, 628GB, 코어i5, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6359373947&traceid=V0-153&itemId=13418949659&vendorItemId=81167890910) 👌 
@@ -168,7 +168,7 @@ pin: true
 
 ## 9. 삼성전자 2021 노트북 플러스2 15.6, 퓨어 화이트, NT550XDA-K24AT, 펜티엄, 256GB, 16GB, WIN11 Pro
 
-![노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/322a/bc7e5aa8dd14687ab2dd6323a33b7d52e20a677e56ac04182a52693e1b11.png)
+[![노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/322a/bc7e5aa8dd14687ab2dd6323a33b7d52e20a677e56ac04182a52693e1b11.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685497846&traceid=V0-153&itemId=18559018722&vendorItemId=86874527458)
 
 
 👍 [삼성전자 2021 노트북 플러스2 15.6, 퓨어 화이트, NT550XDA-K24AT, 펜티엄, 256GB, 16GB, WIN11 Pro <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685497846&traceid=V0-153&itemId=18559018722&vendorItemId=86874527458) 👌 
@@ -186,7 +186,7 @@ pin: true
 
 ## 10. LG전자 2023 울트라PC 15, 화이트, 라이젠3, 256GB, 8GB, WIN11 Home, 15U40R-GR36K
 
-![노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2815671788469835-595eab7a-909a-44f3-870f-6f5a669fb4b2.jpg)
+[![노트북 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2815671788469835-595eab7a-909a-44f3-870f-6f5a669fb4b2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685487426&traceid=V0-153&itemId=19221013658&vendorItemId=86337786363)
 
 
 👍 [LG전자 2023 울트라PC 15, 화이트, 라이젠3, 256GB, 8GB, WIN11 Home, 15U40R-GR36K <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685487426&traceid=V0-153&itemId=19221013658&vendorItemId=86337786363) 👌 

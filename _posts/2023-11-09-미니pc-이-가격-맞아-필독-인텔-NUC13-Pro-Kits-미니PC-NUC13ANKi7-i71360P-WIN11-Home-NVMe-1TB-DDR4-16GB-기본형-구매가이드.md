@@ -41,7 +41,7 @@ pin: true
 
 ## 1. 인텔 NUC13 Pro Kits 미니PC NUC13ANKi7 (i7-1360P WIN11 Home NVMe 1TB DDR4 16GB), 기본형
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/02/12/7/3bcc2f02-537b-4d8f-9be1-f4c87c0633d4.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/02/12/7/3bcc2f02-537b-4d8f-9be1-f4c87c0633d4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7505730779&traceid=V0-153&itemId=19656461425&vendorItemId=86762338280)
 
 
 👍 [인텔 NUC13 Pro Kits 미니PC NUC13ANKi7 (i7-1360P WIN11 Home NVMe 1TB DDR4 16GB), 기본형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7505730779&traceid=V0-153&itemId=19656461425&vendorItemId=86762338280) 👌 
@@ -59,7 +59,7 @@ pin: true
 
 ## 2. 한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 256GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7195245734&traceid=V0-153&itemId=18175254287&vendorItemId=85324477186)
 
 
 👍 [한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 256GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7195245734&traceid=V0-153&itemId=18175254287&vendorItemId=85324477186) 👌 
@@ -77,7 +77,7 @@ pin: true
 
 ## 3. Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+128GB, MINI S N5095
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228408&vendorItemId=85938832475)
 
 
 👍 [Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+128GB, MINI S N5095 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228408&vendorItemId=85938832475) 👌 
@@ -95,7 +95,7 @@ pin: true
 
 ## 4. 갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159)
 
 
 👍 [갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159) 👌 
@@ -113,7 +113,7 @@ pin: true
 
 ## 5. 삼성전자 게이밍 컴퓨터 데스크탑 PC 사무용 게임용 업무용 주식용, 본체만, 2번
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/44c7/7182f835ff6309ccba513e0c8b2749ba00a09d5fccccd4d4de821f24dfe5.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/44c7/7182f835ff6309ccba513e0c8b2749ba00a09d5fccccd4d4de821f24dfe5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619327042&traceid=V0-153&itemId=20197134448&vendorItemId=87515622938)
 
 
 👍 [삼성전자 게이밍 컴퓨터 데스크탑 PC 사무용 게임용 업무용 주식용, 본체만, 2번 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7619327042&traceid=V0-153&itemId=20197134448&vendorItemId=87515622938) 👌 
@@ -131,7 +131,7 @@ pin: true
 
 ## 6. 굿프렌드PC AMD98 (AMD Ryzen9 7950X3D 지포스 RTX 4090) (메모리/저장용량/윈도우선택가능) DDR5 램 수랭 RGB 본체 하이엔드 게이밍 컴퓨터, SSD2TB HDD8TB, 64GB, Windows11HomeDSP 64bit한글
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4190/30572242dbd123ae252622580948691643fd5bec938d5bf2976845aae353.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4190/30572242dbd123ae252622580948691643fd5bec938d5bf2976845aae353.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343041319&traceid=V0-153&itemId=18878174593&vendorItemId=86006709993)
 
 
 👍 [굿프렌드PC AMD98 (AMD Ryzen9 7950X3D 지포스 RTX 4090) (메모리/저장용량/윈도우선택가능) DDR5 램 수랭 RGB 본체 하이엔드 게이밍 컴퓨터, SSD2TB HDD8TB, 64GB, Windows11HomeDSP 64bit한글 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343041319&traceid=V0-153&itemId=18878174593&vendorItemId=86006709993) 👌 
@@ -149,7 +149,7 @@ pin: true
 
 ## 7. 미니pc Beelink Ryzen 7 5800H SER5 맥스, AMD Processor, EU, 5800H Max 16G500G
 
-![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/84fe/d5a70906a79eba6a5e7c3afeb9e9d536f183313b55244fb2907ab087821a.png)
+[![미니pc TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/84fe/d5a70906a79eba6a5e7c3afeb9e9d536f183313b55244fb2907ab087821a.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7514323972&traceid=V0-153&itemId=19695461679&vendorItemId=86973050302)
 
 
 👍 [미니pc Beelink Ryzen 7 5800H SER5 맥스, AMD Processor, EU, 5800H Max 16G500G <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7514323972&traceid=V0-153&itemId=19695461679&vendorItemId=86973050302) 👌 
@@ -167,7 +167,7 @@ pin: true
 
 ## 8. Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+256GB, MINI S N5095
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0d9c/efef6d6c515a6403d91836d981ef8dd3721d284e309c1548cdcfe1d1406a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228397&vendorItemId=86943610550)
 
 
 👍 [Beelink-미니 S 윈도우즈 11 인텔 11 세대 N5095 /미니 S12 프로 N100/ PC DDR4 8GB 128GB 1TB SSD 데스크탑 게임용컴퓨터, 8GB+256GB, MINI S N5095 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7328122823&traceid=V0-153&itemId=18808228397&vendorItemId=86943610550) 👌 
@@ -185,7 +185,7 @@ pin: true
 
 ## 9. 굿프렌드PC 인텔75 (intel i7-13700F / 지포스 RTX 4070Ti) (메모리/저장용량/윈도우선택가능) 13세대 DDR5 본체 조립 컴퓨터 고사양 게임 호그와트레거시, SSD1TB, 32GB, Windows11HomeDSP 64bit한글
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/61eb/302d8964dd9447c89203c7521f9c12dccae523593458d5246f549719ebfb.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/61eb/302d8964dd9447c89203c7521f9c12dccae523593458d5246f549719ebfb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7075597257&traceid=V0-153&itemId=17585348739&vendorItemId=84751890147)
 
 
 👍 [굿프렌드PC 인텔75 (intel i7-13700F / 지포스 RTX 4070Ti) (메모리/저장용량/윈도우선택가능) 13세대 DDR5 본체 조립 컴퓨터 고사양 게임 호그와트레거시, SSD1TB, 32GB, Windows11HomeDSP 64bit한글 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7075597257&traceid=V0-153&itemId=17585348739&vendorItemId=84751890147) 👌 
@@ -203,7 +203,7 @@ pin: true
 
 ## 10. 레노버 아이디어센터 Mini 5i 01IAQ i3 W11 미니 PC Terrazzo Grey 90UB0022KA (i3-12300T WIN11 Home RAM 8GB NVMe 256GB), 기본형
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/18/10/7/ae623c5e-2036-4a44-bd6b-6e1023e27ef8.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/04/18/10/7/ae623c5e-2036-4a44-bd6b-6e1023e27ef8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7275880076&traceid=V0-153&itemId=18566258705&vendorItemId=85703595523)
 
 
 👍 [레노버 아이디어센터 Mini 5i 01IAQ i3 W11 미니 PC Terrazzo Grey 90UB0022KA (i3-12300T WIN11 Home RAM 8GB NVMe 256GB), 기본형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7275880076&traceid=V0-153&itemId=18566258705&vendorItemId=85703595523) 👌 

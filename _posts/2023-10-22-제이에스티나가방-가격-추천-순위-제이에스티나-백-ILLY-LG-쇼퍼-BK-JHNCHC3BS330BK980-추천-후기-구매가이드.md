@@ -37,7 +37,7 @@ pin: true
 
 ## 1. [제이에스티나 백] ILLY LG 쇼퍼 BK (JHNCHC3BS330BK980)
 
-![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6da9/f52af3f77cef196d396bba4ba9cec6956bc099318de34d465b49eed19d9a.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6da9/f52af3f77cef196d396bba4ba9cec6956bc099318de34d465b49eed19d9a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7060393088&traceid=V0-153&itemId=17504348771&vendorItemId=86204889685)
 
 
 👍 [[제이에스티나 백] ILLY LG 쇼퍼 BK (JHNCHC3BS330BK980) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7060393088&traceid=V0-153&itemId=17504348771&vendorItemId=86204889685) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. [제이에스티나 백] JOELLE FALLIN MINI 크로스 BK (JHNCHE2BS831BK010)
 
-![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3c3b/4100355a6a9eec2c71f03cc6fbd1bcc23b2359dca088e1656441cb566497.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3c3b/4100355a6a9eec2c71f03cc6fbd1bcc23b2359dca088e1656441cb566497.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6388277702&traceid=V0-153&itemId=13605995470&vendorItemId=86693775165)
 
 
 👍 [[제이에스티나 백] JOELLE FALLIN MINI 크로스 BK (JHNCHE2BS831BK010) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6388277702&traceid=V0-153&itemId=13605995470&vendorItemId=86693775165) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. 제이에스티나 여성용 J e te 목걸이 JJJTNQ1BS013SR500 + 쇼핑백
 
-![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2110134084041356-44d24ef3-4d3b-4618-9906-42657110e489.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2110134084041356-44d24ef3-4d3b-4618-9906-42657110e489.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6971373397&traceid=V0-153&itemId=17004913666&vendorItemId=84180809330)
 
 
 👍 [제이에스티나 여성용 J e te 목걸이 JJJTNQ1BS013SR500 + 쇼핑백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6971373397&traceid=V0-153&itemId=17004913666&vendorItemId=84180809330) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. [제이에스티나 백] RUBY SM크로스 BK (JHNCHE1BF408BK050)
 
-![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1e7e/fbe4374c45b23ab2f5a7712a9a13f10192125341bf875477a54c99ad4607.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1e7e/fbe4374c45b23ab2f5a7712a9a13f10192125341bf875477a54c99ad4607.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654050433&traceid=V0-153&itemId=9261352093&vendorItemId=86694214957)
 
 
 👍 [[제이에스티나 백] RUBY SM크로스 BK (JHNCHE1BF408BK050) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5654050433&traceid=V0-153&itemId=9261352093&vendorItemId=86694214957) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. 이태리 수입 여성 가방 프리마클라쎄 웨이비 토트백 블랙 GO47-9543-0001
 
-![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2b93/daaa59ba065cbffb07558b6b31a3f9a94894aa2afd54aeee75db0f5bcf98.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2b93/daaa59ba065cbffb07558b6b31a3f9a94894aa2afd54aeee75db0f5bcf98.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6971815246&traceid=V0-153&itemId=17006843316&vendorItemId=70777697312)
 
 
 👍 [이태리 수입 여성 가방 프리마클라쎄 웨이비 토트백 블랙 GO47-9543-0001 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6971815246&traceid=V0-153&itemId=17006843316&vendorItemId=70777697312) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. 제이에스티나 여성용 SIGNATURE J 목걸이 JJSJN02BS406SW420 + 쇼핑백
 
-![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/73f7/f61d631697851df31590fe5cce5f93758b0f1a951c4e9ba88e94018c24c6.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/73f7/f61d631697851df31590fe5cce5f93758b0f1a951c4e9ba88e94018c24c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6445817548&traceid=V0-153&itemId=13971996802&vendorItemId=85350265022)
 
 
 👍 [제이에스티나 여성용 SIGNATURE J 목걸이 JJSJN02BS406SW420 + 쇼핑백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6445817548&traceid=V0-153&itemId=13971996802&vendorItemId=85350265022) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. [제이에스티나 백] JOELLE FALLIN 숄더백 (민트) (JHNCHA0BF830MT010)
 
-![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/314a/5504823c034379666f6d0334354583d35723f04a8710220ddb3e018fb6f1.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/314a/5504823c034379666f6d0334354583d35723f04a8710220ddb3e018fb6f1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1960534665&traceid=V0-153&itemId=3332039646&vendorItemId=71255919192)
 
 
 👍 [[제이에스티나 백] JOELLE FALLIN 숄더백 (민트) (JHNCHA0BF830MT010) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1960534665&traceid=V0-153&itemId=3332039646&vendorItemId=71255919192) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. [제이에스티나 백] JOELLE FALLIN 캔버스 SM 크로스 TA (JHNCHE2BS833TA270)
 
-![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/81e5/8c12c6f0a1d9109a4441301576f21def588838a59b678149f6c913098f06.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/81e5/8c12c6f0a1d9109a4441301576f21def588838a59b678149f6c913098f06.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539159041&traceid=V0-153&itemId=19814163320&vendorItemId=80859057059)
 
 
 👍 [[제이에스티나 백] JOELLE FALLIN 캔버스 SM 크로스 TA (JHNCHE2BS833TA270) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7539159041&traceid=V0-153&itemId=19814163320&vendorItemId=80859057059) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. 기쁜오늘 미니 캔버스 메신저백 클러치백 숄더백 크로스백 crossbody bag
 
-![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/177f/a65ec953dc7ebb0bb5be811afd56d73892548f4f3efb0de1875f1b2f704c.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/177f/a65ec953dc7ebb0bb5be811afd56d73892548f4f3efb0de1875f1b2f704c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7197790352&traceid=V0-153&itemId=18186984843&vendorItemId=85219405375)
 
 
 👍 [기쁜오늘 미니 캔버스 메신저백 클러치백 숄더백 크로스백 crossbody bag <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7197790352&traceid=V0-153&itemId=18186984843&vendorItemId=85219405375) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. [제이에스티나 백] JOELLE QUILTING MD 체인숄더백 (JHNCHA9AF701BK010)
 
-![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7084/3a31fc6dd59e46e9c43b798b37d1f2da4609c805cca15d075ea5bcc300e2.jpg)
+[![제이에스티나가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7084/3a31fc6dd59e46e9c43b798b37d1f2da4609c805cca15d075ea5bcc300e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4534706758&traceid=V0-153&itemId=5481403179&vendorItemId=70332950746)
 
 
 👍 [[제이에스티나 백] JOELLE QUILTING MD 체인숄더백 (JHNCHA9AF701BK010) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4534706758&traceid=V0-153&itemId=5481403179&vendorItemId=70332950746) 👌 

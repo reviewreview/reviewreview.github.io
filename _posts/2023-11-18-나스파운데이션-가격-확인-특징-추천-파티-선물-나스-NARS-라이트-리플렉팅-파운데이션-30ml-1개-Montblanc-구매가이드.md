@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 나스 NARS 라이트 리플렉팅 파운데이션 30ml, 1개, Montblanc
 
-![나스파운데이션 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/26a2/e42a35adab847dc5c87f34e871a321494517be6ec51bce536fd931cf8ecc.jpg)
+[![나스파운데이션 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/26a2/e42a35adab847dc5c87f34e871a321494517be6ec51bce536fd931cf8ecc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7471790407&traceid=V0-153&itemId=19497885801&vendorItemId=86793173857)
 
 
 👍 [나스 NARS 라이트 리플렉팅 파운데이션 30ml, 1개, Montblanc <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7471790407&traceid=V0-153&itemId=19497885801&vendorItemId=86793173857) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 나스 네츄럴 래디언트 롱웨어 파운데이션 30ml, 몽블랑, 1개
 
-![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dee2/447ee83f1e95034d5e85e5e219403d7530dcffc946c042ac5a3e69da7472.jpg)
+[![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dee2/447ee83f1e95034d5e85e5e219403d7530dcffc946c042ac5a3e69da7472.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71419932&traceid=V0-153&itemId=264057823&vendorItemId=85870248727)
 
 
 👍 [나스 네츄럴 래디언트 롱웨어 파운데이션 30ml, 몽블랑, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71419932&traceid=V0-153&itemId=264057823&vendorItemId=85870248727) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 듀이셀 내츄럴핏 파운데이션 30ml SPF 38 PA++, 01호 내추럴베이지, 1개
 
-![나스파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1854555338716718-bbc6f19f-efa2-449b-b915-c7a42d7b3340.jpg)
+[![나스파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1854555338716718-bbc6f19f-efa2-449b-b915-c7a42d7b3340.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6761342061&traceid=V0-153&itemId=15846257473&vendorItemId=83057130365)
 
 
 👍 [듀이셀 내츄럴핏 파운데이션 30ml SPF 38 PA++, 01호 내추럴베이지, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6761342061&traceid=V0-153&itemId=15846257473&vendorItemId=83057130365) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 나스 파운데이션 라이트 리플렉팅 베이스 리퀴드형 30ml 2023년 제품, 1개, L0 SIBERIA
 
-![나스파운데이션 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f5a9/e776d8647f7479f238d1811279a7c0c6ebf95006f60d3f8e53b35fa159f3.jpg)
+[![나스파운데이션 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f5a9/e776d8647f7479f238d1811279a7c0c6ebf95006f60d3f8e53b35fa159f3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7471790407&traceid=V0-153&itemId=19497885804&vendorItemId=87223409061)
 
 
 👍 [나스 파운데이션 라이트 리플렉팅 베이스 리퀴드형 30ml 2023년 제품, 1개, L0 SIBERIA <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7471790407&traceid=V0-153&itemId=19497885804&vendorItemId=87223409061) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 지베르니 밀착 커버 파운데이션 30ml, 1개, 21호 라이트 베이지
 
-![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/26/17/6/a9f51ffb-4f1f-418a-8d9a-4feabf5ed37a.jpg)
+[![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/26/17/6/a9f51ffb-4f1f-418a-8d9a-4feabf5ed37a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7344992433&traceid=V0-153&itemId=3242122076&vendorItemId=86389749997)
 
 
 👍 [지베르니 밀착 커버 파운데이션 30ml, 1개, 21호 라이트 베이지 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7344992433&traceid=V0-153&itemId=3242122076&vendorItemId=86389749997) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 뷰디아니 승무원팩트 면세점 커버력좋은 모공 승무원 고체 물광 광채 파데 커버 쿠션 팩트 파운데이션 묻어나지 않는 커버력좋은 쿠션팩트 쿠션파데 메쉬쿠션 12g, 커버 데일리 02호, 1개
 
-![나스파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2251/3a229db0ab8843522ece10310815db1fdada71ea2a2537103094ebbfbe1e.jpg)
+[![나스파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2251/3a229db0ab8843522ece10310815db1fdada71ea2a2537103094ebbfbe1e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7658239473&traceid=V0-153&itemId=20395111488&vendorItemId=83622856261)
 
 
 👍 [뷰디아니 승무원팩트 면세점 커버력좋은 모공 승무원 고체 물광 광채 파데 커버 쿠션 팩트 파운데이션 묻어나지 않는 커버력좋은 쿠션팩트 쿠션파데 메쉬쿠션 12g, 커버 데일리 02호, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7658239473&traceid=V0-153&itemId=20395111488&vendorItemId=83622856261) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 나스 네츄럴 래디언트 롱웨어 파운데이션 본품30ml [백화점정품], 오슬로, 1개
 
-![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dee2/447ee83f1e95034d5e85e5e219403d7530dcffc946c042ac5a3e69da7472.jpg)
+[![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/dee2/447ee83f1e95034d5e85e5e219403d7530dcffc946c042ac5a3e69da7472.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71419932&traceid=V0-153&itemId=17949414250&vendorItemId=85870248721)
 
 
 👍 [나스 네츄럴 래디언트 롱웨어 파운데이션 본품30ml [백화점정품], 오슬로, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71419932&traceid=V0-153&itemId=17949414250&vendorItemId=85870248721) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 나스 쉬어 글로우 파운데이션 30ml 본품 [백화점정품], 파타고니아, 1개
 
-![나스파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c9c/f7d2d924111ef43c834196fe40d073c396f4de74c4ea6b9fa2c9b0a121e1.jpg)
+[![나스파운데이션 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c9c/f7d2d924111ef43c834196fe40d073c396f4de74c4ea6b9fa2c9b0a121e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=99839519&traceid=V0-153&itemId=18737900100&vendorItemId=85870248652)
 
 
 👍 [나스 쉬어 글로우 파운데이션 30ml 본품 [백화점정품], 파타고니아, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=99839519&traceid=V0-153&itemId=18737900100&vendorItemId=85870248652) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 조성아TM 원샷 커버 파운데이션 SPF50+ PA++++ 30ml, 02 샌드 베이지, 1개
 
-![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/541227980276077-2c0e93f2-8918-4465-bee1-e892a1c370ef.jpg)
+[![나스파운데이션 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/541227980276077-2c0e93f2-8918-4465-bee1-e892a1c370ef.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6837767556&traceid=V0-153&itemId=16250929026&vendorItemId=83444123540)
 
 
 👍 [조성아TM 원샷 커버 파운데이션 SPF50+ PA++++ 30ml, 02 샌드 베이지, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6837767556&traceid=V0-153&itemId=16250929026&vendorItemId=83444123540) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 나스 네츄럴 래디언트 롱웨어 파운데이션, 바르셀로나, 1개
 
-![나스파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aacc/704ab226c917e2455db573a6f7d8e87307735adf338dd6f0ba60c15ad654.jpg)
+[![나스파운데이션 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/aacc/704ab226c917e2455db573a6f7d8e87307735adf338dd6f0ba60c15ad654.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71419932&traceid=V0-153&itemId=17836617760&vendorItemId=86555903649)
 
 
 👍 [나스 네츄럴 래디언트 롱웨어 파운데이션, 바르셀로나, 1개 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=71419932&traceid=V0-153&itemId=17836617760&vendorItemId=86555903649) 👌 

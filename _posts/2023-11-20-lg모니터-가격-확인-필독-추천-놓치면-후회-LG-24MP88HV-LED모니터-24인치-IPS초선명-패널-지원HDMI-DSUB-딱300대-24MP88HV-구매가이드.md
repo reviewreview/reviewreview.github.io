@@ -31,7 +31,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 1. [LG 24MP88HV] LED모니터 24인치 IPS초선명 패널 지원HDMI D-SUB 딱300대!, 24MP88HV
 
-![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/adfe/642a9c95c0cf3c3f323a11275e65d4c880f08316317d0ff997843633a849.jpg)
+[![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/adfe/642a9c95c0cf3c3f323a11275e65d4c880f08316317d0ff997843633a849.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725582547&traceid=V0-153&itemId=20745635916&vendorItemId=87816004005)
 
 
 👍 [[LG 24MP88HV] LED모니터 24인치 IPS초선명 패널 지원HDMI D-SUB 딱300대!, 24MP88HV <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7725582547&traceid=V0-153&itemId=20745635916&vendorItemId=87816004005) 👌 
@@ -49,7 +49,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 2. LG전자 울트라기어 게이밍모니터, 24GN60R
 
-![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224247755802-7cc66c75-04d3-4d21-9d17-e510633d0f42.jpg)
+[![lg모니터 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224247755802-7cc66c75-04d3-4d21-9d17-e510633d0f42.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 24GN60R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507810&traceid=V0-153&itemId=17684272557&vendorItemId=84849444482) 👌 
@@ -67,7 +67,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 3. LG전자 울트라기어 게이밍모니터, 32GN50R
 
-![lg모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013225071492497-09fbb446-4461-4253-aa17-f1c0124999cf.jpg)
+[![lg모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013225071492497-09fbb446-4461-4253-aa17-f1c0124999cf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 32GN50R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251497480&traceid=V0-153&itemId=18447261412&vendorItemId=85588146001) 👌 
@@ -85,7 +85,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 4. LG전자 68.6cm FHD 모니터, 27MQ400C
 
-![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224759332494-94056b6f-a12f-4709-adb5-df6bd2577583.jpg)
+[![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224759332494-94056b6f-a12f-4709-adb5-df6bd2577583.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148546&traceid=V0-153&itemId=20660237461&vendorItemId=84848572699)
 
 
 👍 [LG전자 68.6cm FHD 모니터, 27MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148546&traceid=V0-153&itemId=20660237461&vendorItemId=84848572699) 👌 
@@ -103,7 +103,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 5. [파격특가] LG 삼성 LED 중고 모니터 20 22 23 24인치, 삼성/LG 22인치 LED
 
-![lg모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1b1e/ca6fdc1712529c66bd66e39d482765e828b089228ef2cef62a386fe256e2.jpg)
+[![lg모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1b1e/ca6fdc1712529c66bd66e39d482765e828b089228ef2cef62a386fe256e2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7419576897&traceid=V0-153&itemId=19243746921&vendorItemId=87757705573)
 
 
 👍 [[파격특가] LG 삼성 LED 중고 모니터 20 22 23 24인치, 삼성/LG 22인치 LED <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7419576897&traceid=V0-153&itemId=19243746921&vendorItemId=87757705573) 👌 
@@ -121,7 +121,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 6. LG전자 울트라기어 25GR75FG 360hz 1ms HDR400 e스포츠모니터
 
-![lg모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e376/588dd2b401c4ca768d75dfaf63a218dfb995903a5c0fbce372b9d524cd1a.jpg)
+[![lg모니터 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e376/588dd2b401c4ca768d75dfaf63a218dfb995903a5c0fbce372b9d524cd1a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7284829770&traceid=V0-153&itemId=18606333781&vendorItemId=85742232101)
 
 
 👍 [LG전자 울트라기어 25GR75FG 360hz 1ms HDR400 e스포츠모니터 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7284829770&traceid=V0-153&itemId=18606333781&vendorItemId=85742232101) 👌 
@@ -139,7 +139,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 7. LG전자 60.4cm FHD 모니터, 24MQ400C
 
-![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224391974847-a278c950-c718-4a62-a546-393b400d7194.jpg)
+[![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224391974847-a278c950-c718-4a62-a546-393b400d7194.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148556&traceid=V0-153&itemId=20660237482&vendorItemId=84851123428)
 
 
 👍 [LG전자 60.4cm FHD 모니터, 24MQ400C <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7709148556&traceid=V0-153&itemId=20660237482&vendorItemId=84851123428) 👌 
@@ -157,7 +157,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 8. LG전자 울트라와이드 모니터, 29WP500
 
-![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4523133116460736-79150e99-5a7e-49e7-b943-08e61d73795f.jpg)
+[![lg모니터 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4523133116460736-79150e99-5a7e-49e7-b943-08e61d73795f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5511041646&traceid=V0-153&itemId=8590793750&vendorItemId=75878077822)
 
 
 👍 [LG전자 울트라와이드 모니터, 29WP500 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5511041646&traceid=V0-153&itemId=8590793750&vendorItemId=75878077822) 👌 
@@ -175,7 +175,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 9. 무빙큐빅스 스마트 27인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, 기사방문설치
 
-![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ccd8/a0f2b94b9c85818d9cf7df65c6712b64bf04166bfd57bc0733e004842bfb.jpg)
+[![lg모니터 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ccd8/a0f2b94b9c85818d9cf7df65c6712b64bf04166bfd57bc0733e004842bfb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7577348413&traceid=V0-153&itemId=19995568369&vendorItemId=87093140722)
 
 
 👍 [무빙큐빅스 스마트 27인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, 기사방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7577348413&traceid=V0-153&itemId=19995568369&vendorItemId=87093140722) 👌 
@@ -193,7 +193,7 @@ LG 모니터는 뛰어난 품질과 다양한 기능을 갖추고 있지만, 합
 
 ## 10. LG전자 울트라기어 게이밍모니터, 27GN60R
 
-![lg모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224523140600-c371a498-a130-429c-ab3c-b5c59ccdc93d.jpg)
+[![lg모니터 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4013224523140600-c371a498-a130-429c-ab3c-b5c59ccdc93d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507782&traceid=V0-153&itemId=17684272406&vendorItemId=84849444322)
 
 
 👍 [LG전자 울트라기어 게이밍모니터, 27GN60R <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7093507782&traceid=V0-153&itemId=17684272406&vendorItemId=84849444322) 👌 

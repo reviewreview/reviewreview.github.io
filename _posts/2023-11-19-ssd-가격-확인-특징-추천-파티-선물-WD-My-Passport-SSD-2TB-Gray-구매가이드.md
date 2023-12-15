@@ -35,7 +35,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 1. WD My Passport SSD, 2TB, Gray
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/kk1npiwc/5c9fea6f25794e7396f2c839c935e61c.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/kk1npiwc/5c9fea6f25794e7396f2c839c935e61c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588465&vendorItemId=86683635573)
 
 
 👍 [WD My Passport SSD, 2TB, Gray <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2145848519&traceid=V0-153&itemId=5415588465&vendorItemId=86683635573) 👌 
@@ -53,7 +53,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 2. SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4692728789806122-8417ce38-4f01-46e8-bcb7-92ca762f0670.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS001TDE9X0733, 1TB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458192&vendorItemId=73680480457) 👌 
@@ -71,7 +71,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 3. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -89,7 +89,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 4. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8934/cab407497525303883e55848bb414656e943e6f880a3be5bd522f027f99f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=20065030259&vendorItemId=86739270234) 👌 
@@ -107,7 +107,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 5. 비잽 USB 3.0 외장하드 케이스 BZ33, BZ33(블랙), 2048GB, 블랙
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2017/07/13/10/8/adf0cd91-583f-42c6-88e8-f922274949a0.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2017/07/13/10/8/adf0cd91-583f-42c6-88e8-f922274949a0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=103673516&vendorItemId=3197394423)
 
 
 👍 [비잽 USB 3.0 외장하드 케이스 BZ33, BZ33(블랙), 2048GB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=103673516&vendorItemId=3197394423) 👌 
@@ -125,7 +125,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 6. WD NEW My Passport For Mac Gen4 외장하드 2TB, 블루
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/32fb/3fd14ea5a01ade81bce9330cf59b2af62ba36adfc9d8d899508a40c94a28.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/32fb/3fd14ea5a01ade81bce9330cf59b2af62ba36adfc9d8d899508a40c94a28.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7165621743&traceid=V0-153&itemId=18041872519&vendorItemId=87007931945)
 
 
 👍 [WD NEW My Passport For Mac Gen4 외장하드 2TB, 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7165621743&traceid=V0-153&itemId=18041872519&vendorItemId=87007931945) 👌 
@@ -143,7 +143,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 7. 리뷰안 SATA3 노트북 PC SSD, 1TB, 900G비즈
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7550/f66f11781222a52370ce45e583a6fd1a967b57977d5e9f40d647d5f509ef.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/7550/f66f11781222a52370ce45e583a6fd1a967b57977d5e9f40d647d5f509ef.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222)
 
 
 👍 [리뷰안 SATA3 노트북 PC SSD, 1TB, 900G비즈 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1173714206&traceid=V0-153&itemId=7201777080&vendorItemId=86261643222) 👌 
@@ -161,7 +161,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 8. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 
@@ -179,7 +179,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 9. 씨게이트 One Touch HUB 외장하드 STLC4000400 +데이터복구+USB케이블, 4TB, 블랙
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050415792683123-55e7f5cc-1638-4ad2-b2b1-efc801dcd447.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1050415792683123-55e7f5cc-1638-4ad2-b2b1-efc801dcd447.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308624727&traceid=V0-153&itemId=8308395687&vendorItemId=75596285409)
 
 
 👍 [씨게이트 One Touch HUB 외장하드 STLC4000400 +데이터복구+USB케이블, 4TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7308624727&traceid=V0-153&itemId=8308395687&vendorItemId=75596285409) 👌 
@@ -197,7 +197,7 @@ HDD는 데이터를 저장할 때 조각 모음이 발생할 수 있습니다. �
 
 ## 10. 기가바이트 GIGABYTE 480GB SATA, SSD
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9067/82168fa2754e7e4ea88e833ef0c038eca81ddc7d80115e989bd5065cd022.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583)
 
 
 👍 [기가바이트 GIGABYTE 480GB SATA, SSD <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7503358475&traceid=V0-153&itemId=19645527992&vendorItemId=86751641583) 👌 

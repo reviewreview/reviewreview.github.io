@@ -31,7 +31,7 @@ pin: true
 
 ## 1. Charles & Keith 메탈릭 힙색 여성 겨드랑이 백 스타일리쉬 토트 숄더 바게트
 
-![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/156c/e3ac318b7babed0e2037554f1be6beaaf0a7c81a6153fdaee351849c3849.jpg)
+[![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/156c/e3ac318b7babed0e2037554f1be6beaaf0a7c81a6153fdaee351849c3849.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593066563&traceid=V0-153&itemId=20068741359&vendorItemId=87164556676)
 
 
 👍 [Charles & Keith 메탈릭 힙색 여성 겨드랑이 백 스타일리쉬 토트 숄더 바게트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593066563&traceid=V0-153&itemId=20068741359&vendorItemId=87164556676) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 링고 토트 숄더백 + 이너백 세트
 
-![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/kkjovihd/e54299ff97004b2482eab509aec114ea.jpg)
+[![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/kkjovihd/e54299ff97004b2482eab509aec114ea.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7553679654&traceid=V0-153&itemId=19884843560&vendorItemId=86985257230)
 
 
 👍 [링고 토트 숄더백 + 이너백 세트 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7553679654&traceid=V0-153&itemId=19884843560&vendorItemId=86985257230) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 찰스앤키스 CHARLES＆KEITH CK2-80781400 메탈 버클 두부백 숄더백 7colors
 
-![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0b35/c444a7989573b07694fbea24928096a5521b6aab8ff5582edca5c4420a09.jpg)
+[![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0b35/c444a7989573b07694fbea24928096a5521b6aab8ff5582edca5c4420a09.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7590572219&traceid=V0-153&itemId=20057331146&vendorItemId=87153400246)
 
 
 👍 [찰스앤키스 CHARLES＆KEITH CK2-80781400 메탈 버클 두부백 숄더백 7colors <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7590572219&traceid=V0-153&itemId=20057331146&vendorItemId=87153400246) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 찰스앤키스 듀오 더블 체인 호보 백 CK2-40671449
 
-![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d037/384a6b245d213a6dae4492c79d2d8e82ca33b64c0edc1fbb80147177e77a.jpg)
+[![찰스앤키스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d037/384a6b245d213a6dae4492c79d2d8e82ca33b64c0edc1fbb80147177e77a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138987472&traceid=V0-153&itemId=17919636139&vendorItemId=85082241409)
 
 
 👍 [찰스앤키스 듀오 더블 체인 호보 백 CK2-40671449 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138987472&traceid=V0-153&itemId=17919636139&vendorItemId=85082241409) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. DEEPSUN 블루 미니멀 크로스 핸드백 여성용 미니멀 데일리 숄더백 미니멀티백
 
-![찰스앤키스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/56ec/56637957ff9d28677ea2fe34a44b4f6b2af571a7fb65aa86c7edffd533f8.jpg)
+[![찰스앤키스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/56ec/56637957ff9d28677ea2fe34a44b4f6b2af571a7fb65aa86c7edffd533f8.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6449197233&traceid=V0-153&itemId=13992825742&vendorItemId=83181565630)
 
 
 👍 [DEEPSUN 블루 미니멀 크로스 핸드백 여성용 미니멀 데일리 숄더백 미니멀티백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6449197233&traceid=V0-153&itemId=13992825742&vendorItemId=83181565630) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 고고언니 페이즐리 데이지꽃 에코백 공효진 송혜교 연예인 가방
 
-![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d6c9/87dc0f653b493340ac43a8ffcd56e940cf21489f2125a474eeaaa3c4a7ed.jpeg)
+[![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d6c9/87dc0f653b493340ac43a8ffcd56e940cf21489f2125a474eeaaa3c4a7ed.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4845898791&traceid=V0-153&itemId=6267206734&vendorItemId=73562832012)
 
 
 👍 [고고언니 페이즐리 데이지꽃 에코백 공효진 송혜교 연예인 가방 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4845898791&traceid=V0-153&itemId=6267206734&vendorItemId=73562832012) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 찰스앤키스 23NEW CHARLES&KEITH CK2-40271215 소프트 토트 크로스 겨드랑이 백
 
-![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4a83/04908b90aa79251a6e10600bdced4a51ac8008bc20f3155a2f79361d7a2b.jpg)
+[![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4a83/04908b90aa79251a6e10600bdced4a51ac8008bc20f3155a2f79361d7a2b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7613759883&traceid=V0-153&itemId=20170876353&vendorItemId=87263061039)
 
 
 👍 [찰스앤키스 23NEW CHARLES&KEITH CK2-40271215 소프트 토트 크로스 겨드랑이 백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7613759883&traceid=V0-153&itemId=20170876353&vendorItemId=87263061039) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 찰스앤키스 앨리 러치드 호보 백 CK2-10151077
 
-![찰스앤키스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cafa/1ab40f8ba80c5c8b0caf6f448787dd155ed630a10df937d45b0dafcf9c90.jpg)
+[![찰스앤키스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cafa/1ab40f8ba80c5c8b0caf6f448787dd155ed630a10df937d45b0dafcf9c90.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7219521989&traceid=V0-153&itemId=18291317401&vendorItemId=85437026258)
 
 
 👍 [찰스앤키스 앨리 러치드 호보 백 CK2-10151077 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7219521989&traceid=V0-153&itemId=18291317401&vendorItemId=85437026258) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 여성 미니핸드백 도트백 체인숄더백 (동전가방세트)
 
-![찰스앤키스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e3fd/5df41870fa1f06cca49e58ef03f874c5a7ee15e8356061ccc04ad0a38318.jpg)
+[![찰스앤키스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e3fd/5df41870fa1f06cca49e58ef03f874c5a7ee15e8356061ccc04ad0a38318.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6767797745&traceid=V0-153&itemId=15880872557&vendorItemId=83089464688)
 
 
 👍 [여성 미니핸드백 도트백 체인숄더백 (동전가방세트) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6767797745&traceid=V0-153&itemId=15880872557&vendorItemId=83089464688) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 찰스앤키스 CHARLES＆KEITH CK2-20270771 미디움 마름모 체인백 소프트겨드랑이백 숄더백
 
-![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2783/f69adb270ae067002161253d7efc11890ee48fe1cff39a2c3b3f9eca303f.jpg)
+[![찰스앤키스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2783/f69adb270ae067002161253d7efc11890ee48fe1cff39a2c3b3f9eca303f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7588768450&traceid=V0-153&itemId=20049230743&vendorItemId=87145501537)
 
 
 👍 [찰스앤키스 CHARLES＆KEITH CK2-20270771 미디움 마름모 체인백 소프트겨드랑이백 숄더백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7588768450&traceid=V0-153&itemId=20049230743&vendorItemId=87145501537) 👌 

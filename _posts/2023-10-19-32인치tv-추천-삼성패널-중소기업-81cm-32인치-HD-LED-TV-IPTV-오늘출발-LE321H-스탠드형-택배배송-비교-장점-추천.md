@@ -45,7 +45,7 @@ pin: true
 
 ## 1. 삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송
 
-![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)
+[![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 
 👍 [삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477) 👌 
@@ -63,7 +63,7 @@ pin: true
 
 ## 2. 프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 
 👍 [프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 3. 삼성전자 HD 80 cm TV 자가설치, 80cm(32인치), UN32N4000AFXKR, 스탠드형
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1394919207411205-27092835-fff9-449f-929c-ce13ca9592bb.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1394919207411205-27092835-fff9-449f-929c-ce13ca9592bb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235)
 
 
 👍 [삼성전자 HD 80 cm TV 자가설치, 80cm(32인치), UN32N4000AFXKR, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7478524711&traceid=V0-153&itemId=19529341062&vendorItemId=4111902235) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 4. LG전자 HD TV, 80cm(32인치), 32LM581CBND, 방문설치, 스탠드형
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x3k8ai6d/9997513780f145afaf079d7cf0524655.jpg)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/x3k8ai6d/9997513780f145afaf079d7cf0524655.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144315096&traceid=V0-153&itemId=17947107896&vendorItemId=85104880787)
 
 
 👍 [LG전자 HD TV, 80cm(32인치), 32LM581CBND, 방문설치, 스탠드형 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144315096&traceid=V0-153&itemId=17947107896&vendorItemId=85104880787) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 5. 와이드뷰 HD 안드로이드11 와이드뷰 TV, 81cm(32인치), EKW32HA11, 스탠드형, 자가설치
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1504393839506634-cff8d8f6-3c10-43cf-9b73-a8fc34ad7ac1.jpg)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1504393839506634-cff8d8f6-3c10-43cf-9b73-a8fc34ad7ac1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7398742610&traceid=V0-153&itemId=19145308394&vendorItemId=82649223771)
 
 
 👍 [와이드뷰 HD 안드로이드11 와이드뷰 TV, 81cm(32인치), EKW32HA11, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7398742610&traceid=V0-153&itemId=19145308394&vendorItemId=82649223771) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 6. 와이드뷰 HD 무결점 TV, 81cm, EKW32HT1, 스탠드형, 고객직접설치
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/10/12/4/73c79b5f-10b4-4e9d-b433-a8380f41a32c.png)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/10/12/4/73c79b5f-10b4-4e9d-b433-a8380f41a32c.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523074260&traceid=V0-153&itemId=19735346854&vendorItemId=86839174150)
 
 
 👍 [와이드뷰 HD 무결점 TV, 81cm, EKW32HT1, 스탠드형, 고객직접설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523074260&traceid=V0-153&itemId=19735346854&vendorItemId=86839174150) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 7. 삼성전자 HD LED TV, 80cm(32인치), UN32N4010AFXKR, 스탠드형, 자가설치
 
-![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0565/ecfda5f830a823adc01c327eb4cb09cf48337aabe0e7d855dc2554d2e269.jpg)
+[![32인치tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0565/ecfda5f830a823adc01c327eb4cb09cf48337aabe0e7d855dc2554d2e269.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1456215819&traceid=V0-153&itemId=2506135522&vendorItemId=78660669533)
 
 
 👍 [삼성전자 HD LED TV, 80cm(32인치), UN32N4010AFXKR, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1456215819&traceid=V0-153&itemId=2506135522&vendorItemId=78660669533) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 8. 시티브 HD TV, 80cm, CP3201HD NEW, 스탠드형, 고객직접설치
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/udsfzga4/c163cb9e32d140368dd6d8e82b282a40.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/udsfzga4/c163cb9e32d140368dd6d8e82b282a40.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7248317903&traceid=V0-153&itemId=18432287334&vendorItemId=85573772975)
 
 
 👍 [시티브 HD TV, 80cm, CP3201HD NEW, 스탠드형, 고객직접설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7248317903&traceid=V0-153&itemId=18432287334&vendorItemId=85573772975) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 9. 넥스 81cm(32) LED TV [무결점 스위블받침대] [NX32H], 1_NX32H (스탠드형 / 자가설치), 자가설치
 
-![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3fdf/9fcc91778b46d14854caa890e1a81ff6eab909dfdee7e9b9ee82e06427ce.jpg)
+[![32인치tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3fdf/9fcc91778b46d14854caa890e1a81ff6eab909dfdee7e9b9ee82e06427ce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7614395865&traceid=V0-153&itemId=20173863426&vendorItemId=3607581751)
 
 
 👍 [넥스 81cm(32) LED TV [무결점 스위블받침대] [NX32H], 1_NX32H (스탠드형 / 자가설치), 자가설치 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7614395865&traceid=V0-153&itemId=20173863426&vendorItemId=3607581751) 👌 
@@ -207,7 +207,7 @@ pin: true
 
 ## 10. 삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송
 
-![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)
+[![32인치tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/404d/c261981c0e8cac64c6309f8df35c6d06f918d0472a6e42ddee9a0770a8e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477)
 
 
 👍 [삼성패널 중소기업 81cm 32인치 HD LED TV IPTV 오늘출발, LE-321H, 스탠드형, 택배배송 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7621158806&traceid=V0-153&itemId=20205910703&vendorItemId=83364147477) 👌 

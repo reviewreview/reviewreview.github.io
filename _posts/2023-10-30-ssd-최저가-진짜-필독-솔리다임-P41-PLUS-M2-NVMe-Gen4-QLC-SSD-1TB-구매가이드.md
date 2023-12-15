@@ -32,7 +32,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 1. 솔리다임 P41 PLUS M.2 NVMe Gen4 QLC SSD, 1TB
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/08/12/5/25f937f6-6f95-42c8-8135-90170ab78e46.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/08/12/5/25f937f6-6f95-42c8-8135-90170ab78e46.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990)
 
 
 👍 [솔리다임 P41 PLUS M.2 NVMe Gen4 QLC SSD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7320017635&traceid=V0-153&itemId=18772380274&vendorItemId=85903994990) 👌 
@@ -50,7 +50,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 2. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3b78/47ed0b499a7944163fe8a6396ea2a1c26989f784ebbc97c2fac085f6888f.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3b78/47ed0b499a7944163fe8a6396ea2a1c26989f784ebbc97c2fac085f6888f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=77043787152)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=77043787152) 👌 
@@ -68,7 +68,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 3. 한창코퍼레이션 CLOUD SSD, 512GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 512GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897) 👌 
@@ -86,7 +86,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 4. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -104,7 +104,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 5. 타이탄 프로 SSD TITAN 128XP, 128GB
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2018/01/29/11/0/81d22799-f303-48be-b412-ed0e5d01b9c6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431)
 
 
 👍 [타이탄 프로 SSD TITAN 128XP, 128GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=63171192&traceid=V0-153&itemId=215197459&vendorItemId=3518019431) 👌 
@@ -122,7 +122,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 6. 씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/jrg7yget/542651f5632a4fd1aebd1b1894b386bc.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/jrg7yget/542651f5632a4fd1aebd1b1894b386bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310)
 
 
 👍 [씨게이트 One Touch 데이터복구 외장하드 + 파우치, 5TB, 스페이스그레이 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=11271673984&vendorItemId=78548572310) 👌 
@@ -140,7 +140,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 7. 한창코퍼레이션 CLOUD SSD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876) 👌 
@@ -158,7 +158,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 8. 삼성전자 공식인증 SSD 870QVO 1TB/2TB/4TB/8TB MZ-77Q1T0BW MZ-77Q2T0BW MZ-77Q4T0BW MZ-77Q8T0BW 정품, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0795/142c144b7ec3d27bac1e8c005cdd28aafe995327bca0d1f838189b07350c.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0795/142c144b7ec3d27bac1e8c005cdd28aafe995327bca0d1f838189b07350c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6262044184&traceid=V0-153&itemId=12756049099&vendorItemId=87113563977)
 
 
 👍 [삼성전자 공식인증 SSD 870QVO 1TB/2TB/4TB/8TB MZ-77Q1T0BW MZ-77Q2T0BW MZ-77Q4T0BW MZ-77Q8T0BW 정품, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6262044184&traceid=V0-153&itemId=12756049099&vendorItemId=87113563977) 👌 
@@ -176,7 +176,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 9. 키오시아 EXCERIA G2 M.2 NVMeTM SSD + NVMe 방열판, 500GB, RC50500G00
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1672473713939598-26325492-ad4a-4164-b9b4-b068561af2c7.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1672473713939598-26325492-ad4a-4164-b9b4-b068561af2c7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731292&vendorItemId=71229915570)
 
 
 👍 [키오시아 EXCERIA G2 M.2 NVMeTM SSD + NVMe 방열판, 500GB, RC50500G00 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731292&vendorItemId=71229915570) 👌 
@@ -194,7 +194,7 @@ SSD는 HDD에 비해 여러 가지 장점을 가지고 있습니다. 빠른 속�
 
 ## 10. 한창코퍼레이션 CLOUD SSD 2.5 SATA3, 256GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/10/07/14/0/ea067fea-8afe-445d-9218-eac6a6ba7a16.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/10/07/14/0/ea067fea-8afe-445d-9218-eac6a6ba7a16.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196385&vendorItemId=78795973240)
 
 
 👍 [한창코퍼레이션 CLOUD SSD 2.5 SATA3, 256GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196385&vendorItemId=78795973240) 👌 

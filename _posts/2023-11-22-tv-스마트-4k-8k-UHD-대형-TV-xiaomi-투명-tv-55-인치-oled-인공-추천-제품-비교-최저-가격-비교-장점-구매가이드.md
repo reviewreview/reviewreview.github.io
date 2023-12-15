@@ -43,7 +43,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 1. 스마트 4k 8k UHD 대형 TV xiaomi 투명 tv 55 인치 oled 인공
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dda8/392e73c2908fd3a3604bcddcecd066104b4ff3556ce4a5979146cf864239.jpeg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dda8/392e73c2908fd3a3604bcddcecd066104b4ff3556ce4a5979146cf864239.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6716198368&traceid=V0-153&itemId=15608704069&vendorItemId=83076203545)
 
 
 👍 [스마트 4k 8k UHD 대형 TV xiaomi 투명 tv 55 인치 oled 인공 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6716198368&traceid=V0-153&itemId=15608704069&vendorItemId=83076203545) 👌 
@@ -61,7 +61,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 2. 삼성전자 4K UHD 슬림핏 TV UA7000, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/710930450350763-18ba6095-ba32-4c0a-8b3a-f5a001745f15.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159)
 
 
 👍 [삼성전자 4K UHD 슬림핏 TV UA7000, 176cm(70인치), KU70UA7000FXKR, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5624779145&traceid=V0-153&itemId=11216117534&vendorItemId=78493615159) 👌 
@@ -79,7 +79,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 3. 프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/5296877259013933-81144453-dd2a-4724-9bc1-93a9b841f85e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174)
 
 
 👍 [프리즘 HD LED TV, 82cm(32인치), PT320HD, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7523101746&traceid=V0-153&itemId=19735454044&vendorItemId=3053122174) 👌 
@@ -97,7 +97,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 4. [테레비ZONE] 43인치 FHD TV A급LED패널 에너지1등급 2023신형 109cm 고화질 가성비티비
 
-![tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5568/6c485785bac9bcfa93eda4bfef5feba7fa694395f95f20c4a37b47297c78.png)
+[![tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5568/6c485785bac9bcfa93eda4bfef5feba7fa694395f95f20c4a37b47297c78.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7670968061&traceid=V0-153&itemId=20463071632&vendorItemId=87475057448)
 
 
 👍 [[테레비ZONE] 43인치 FHD TV A급LED패널 에너지1등급 2023신형 109cm 고화질 가성비티비 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7670968061&traceid=V0-153&itemId=20463071632&vendorItemId=87475057448) 👌 
@@ -115,7 +115,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 5. 무빙큐빅스 스마트 24인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, 60.4cm(24인치), EKW24FMA11, 스탠드형, 고객직접설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/efec/659ff15022e366cdbe5e19f3e3a1796654469e71da6a29f01c141626b06c.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/efec/659ff15022e366cdbe5e19f3e3a1796654469e71da6a29f01c141626b06c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87697055853)
 
 
 👍 [무빙큐빅스 스마트 24인치 삼탠바이미 (화이트) SET 이동식 tv 거치대 스탠바이미, 60.4cm(24인치), EKW24FMA11, 스탠드형, 고객직접설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7546140341&traceid=V0-153&itemId=19848598315&vendorItemId=87697055853) 👌 
@@ -133,7 +133,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 6. 삼성패널 중소기업 50인치 UHD 4K TV 127cm LED TV 에너지효율 1등급 스탠드형 벽걸이 가능 자가 설치 방문 설치, 스탠드형 택배배송
 
-![tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ebd9/adb4cb1b3ec66d229197a5a4b46b0108f93dde2e30ae8d1e93ed07f8d3de.jpg)
+[![tv TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ebd9/adb4cb1b3ec66d229197a5a4b46b0108f93dde2e30ae8d1e93ed07f8d3de.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6825452087&traceid=V0-153&itemId=16189878672&vendorItemId=85159760921)
 
 
 👍 [삼성패널 중소기업 50인치 UHD 4K TV 127cm LED TV 에너지효율 1등급 스탠드형 벽걸이 가능 자가 설치 방문 설치, 스탠드형 택배배송 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6825452087&traceid=V0-153&itemId=16189878672&vendorItemId=85159760921) 👌 
@@ -151,7 +151,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 7. TCL 안드로이드11 4K UHD TV, 128cm(50인치), 50P735, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1965633124907103-113e4531-b9b8-431b-9d05-931bc00a53b6.jpg)
+[![tv TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1965633124907103-113e4531-b9b8-431b-9d05-931bc00a53b6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089)
 
 
 👍 [TCL 안드로이드11 4K UHD TV, 128cm(50인치), 50P735, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6552509082&traceid=V0-153&itemId=14634271243&vendorItemId=81875808089) 👌 
@@ -169,7 +169,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 8. 유맥스 FHD LED TV, 109cm(43인치), MX43F, 스탠드형, 자가설치
 
-![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/14410047569648003-de1fef45-9f3e-4109-b4f0-324cf0f04155.jpg)
+[![tv TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/14410047569648003-de1fef45-9f3e-4109-b4f0-324cf0f04155.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116119970&traceid=V0-153&itemId=17804333942&vendorItemId=3011945885)
 
 
 👍 [유맥스 FHD LED TV, 109cm(43인치), MX43F, 스탠드형, 자가설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116119970&traceid=V0-153&itemId=17804333942&vendorItemId=3011945885) 👌 
@@ -187,7 +187,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 9. 샤오미 안드로이드11 4K UHD LED A Pro TV, L65M8-A2KR, 방문설치, 벽걸이형, 165cm
 
-![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2086293695356886-1bf7840d-75a9-43e1-8eb0-e80759a6ce71.jpg)
+[![tv TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2086293695356886-1bf7840d-75a9-43e1-8eb0-e80759a6ce71.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20582655012&vendorItemId=87657597922)
 
 
 👍 [샤오미 안드로이드11 4K UHD LED A Pro TV, L65M8-A2KR, 방문설치, 벽걸이형, 165cm <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7692656648&traceid=V0-153&itemId=20582655012&vendorItemId=87657597922) 👌 
@@ -205,7 +205,7 @@ TV는 기업의 제품이나 서비스를 홍보하는 데 사용될 수 있습�
 
 ## 10. LG전자 울트라HD TV, 107cm(43인치), 43UR642S0NC, 스탠드형, 방문설치
 
-![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/oiclfgc5/16f6a079e0b5480388da504ddd7e9eb6.jpg)
+[![tv TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/oiclfgc5/16f6a079e0b5480388da504ddd7e9eb6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587795&vendorItemId=83054623257)
 
 
 👍 [LG전자 울트라HD TV, 107cm(43인치), 43UR642S0NC, 스탠드형, 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047812403&traceid=V0-153&itemId=15843587795&vendorItemId=83054623257) 👌 

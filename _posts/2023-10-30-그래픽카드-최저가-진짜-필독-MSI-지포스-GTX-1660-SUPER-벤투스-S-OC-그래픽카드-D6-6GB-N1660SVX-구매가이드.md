@@ -29,7 +29,7 @@ pin: true
 
 ## 1. MSI 지포스 GTX 1660 SUPER 벤투스 S OC 그래픽카드 D6 6GB, N1660SVX
 
-![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9983/e18ba87dd4520eeb69bce26fd0bbec3508bed58e4f7b4c7ed348d468ef0e.jpg)
+[![그래픽카드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9983/e18ba87dd4520eeb69bce26fd0bbec3508bed58e4f7b4c7ed348d468ef0e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1637460930&traceid=V0-153&itemId=2792644622&vendorItemId=86762634035)
 
 
 👍 [MSI 지포스 GTX 1660 SUPER 벤투스 S OC 그래픽카드 D6 6GB, N1660SVX <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1637460930&traceid=V0-153&itemId=2792644622&vendorItemId=86762634035) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. XFX 라데온 RX 6600 SWFT 210 CORE D6 8GB AMD 그래픽카드
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a659/6007f67ebfc0800b8df6aee9e73cc4d16f01f853283cb83571518871d117.jpeg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a659/6007f67ebfc0800b8df6aee9e73cc4d16f01f853283cb83571518871d117.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645963764&traceid=V0-153&itemId=20330130149&vendorItemId=86839641710)
 
 
 👍 [XFX 라데온 RX 6600 SWFT 210 CORE D6 8GB AMD 그래픽카드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7645963764&traceid=V0-153&itemId=20330130149&vendorItemId=86839641710) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. 티피링크 Wi Fi 6 블루투스 5.0 PCIe 랜카드 데스크탑용, Archer TX3000E
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/dihqqmvg/ea1c6554d05341d1a9e0834f8528e32c.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/dihqqmvg/ea1c6554d05341d1a9e0834f8528e32c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4735857931&traceid=V0-153&itemId=6010591869&vendorItemId=73308323479)
 
 
 👍 [티피링크 Wi Fi 6 블루투스 5.0 PCIe 랜카드 데스크탑용, Archer TX3000E <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4735857931&traceid=V0-153&itemId=6010591869&vendorItemId=73308323479) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. MSI 지포스 RTX 3060 벤투스 2X OC D6 12GB 그래픽카드 (MSI코리아)
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a3c3/6b979c2e698ca7e58f26e62f0f94c340f4b9bc95b3eba50096b4a7861258.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a3c3/6b979c2e698ca7e58f26e62f0f94c340f4b9bc95b3eba50096b4a7861258.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6610517747&traceid=V0-153&itemId=18985380701&vendorItemId=86388031055)
 
 
 👍 [MSI 지포스 RTX 3060 벤투스 2X OC D6 12GB 그래픽카드 (MSI코리아) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6610517747&traceid=V0-153&itemId=18985380701&vendorItemId=86388031055) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. 제이엠지 씨파운드(CPOUND) 서멀구리스 CPU/써멀/방열, 5g
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c874/71e1e5ff1c65cfffff561ff3e0d553ddc4b3646e25e2eeca51b74d14d20f.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c874/71e1e5ff1c65cfffff561ff3e0d553ddc4b3646e25e2eeca51b74d14d20f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6540968739&traceid=V0-153&itemId=14563124259&vendorItemId=81805383792)
 
 
 👍 [제이엠지 씨파운드(CPOUND) 서멀구리스 CPU/써멀/방열, 5g <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6540968739&traceid=V0-153&itemId=14563124259&vendorItemId=81805383792) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 티피링크 기가비트 PCIe Express 네트워크 어댑터 랜카드 데스크탑용, TG-3468
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/01/24/9/3/6428eda9-2fd9-4c11-9197-85ddb551d1cc.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2022/01/24/9/3/6428eda9-2fd9-4c11-9197-85ddb551d1cc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6303980407&traceid=V0-153&itemId=13050714200&vendorItemId=80313522789)
 
 
 👍 [티피링크 기가비트 PCIe Express 네트워크 어댑터 랜카드 데스크탑용, TG-3468 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6303980407&traceid=V0-153&itemId=13050714200&vendorItemId=80313522789) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 이엠텍 RTX2060 SUPER STORM X Dual D6 8GB 무상AS 24년
 
-![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/844e/60ea342d73d822626d551194096792b4f8c67f48ada98cfa22ebf32d7b08.jpg)
+[![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/844e/60ea342d73d822626d551194096792b4f8c67f48ada98cfa22ebf32d7b08.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6806640734&traceid=V0-153&itemId=16089818908&vendorItemId=83369485831)
 
 
 👍 [이엠텍 RTX2060 SUPER STORM X Dual D6 8GB 무상AS 24년 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6806640734&traceid=V0-153&itemId=16089818908&vendorItemId=83369485831) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. MSI 지포스 GT1030 에어로 ITX OC D4 2GB
 
-![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a075/ee0d7f7b96b324206530a5c37b88d6b88c222585a352140e0d3482aa29bd.jpg)
+[![그래픽카드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a075/ee0d7f7b96b324206530a5c37b88d6b88c222585a352140e0d3482aa29bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=330196921&traceid=V0-153&itemId=1055449534&vendorItemId=85847868404)
 
 
 👍 [MSI 지포스 GT1030 에어로 ITX OC D4 2GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=330196921&traceid=V0-153&itemId=1055449534&vendorItemId=85847868404) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. 삼성전자 중고노트북 삼성노트북 NT551EBE i5-8265U 인텔 8세대 Intel Core i5 상태 좋은 노트북 15.6인치, WIN11 Pro, 16GB, 512GB, 코어i5, 나이트 차콜 + HDD 500GB추가
 
-![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fd35/b248ce80f9751f6eec0fd79ee21f643491901ec9f223b9ccc4b12aee173b.jpg)
+[![그래픽카드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fd35/b248ce80f9751f6eec0fd79ee21f643491901ec9f223b9ccc4b12aee173b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7187828431&traceid=V0-153&itemId=18141572778&vendorItemId=85585623590)
 
 
 👍 [삼성전자 중고노트북 삼성노트북 NT551EBE i5-8265U 인텔 8세대 Intel Core i5 상태 좋은 노트북 15.6인치, WIN11 Pro, 16GB, 512GB, 코어i5, 나이트 차콜 + HDD 500GB추가 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7187828431&traceid=V0-153&itemId=18141572778&vendorItemId=85585623590) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. XFX 라데온 RX 550 D5 4GB AMD 그래픽카드
 
-![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fb22/2b7f23c97557de89a8432cd5b41ea73ec706c88428554f8b01a0b635500f.jpg)
+[![그래픽카드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fb22/2b7f23c97557de89a8432cd5b41ea73ec706c88428554f8b01a0b635500f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7562725475&traceid=V0-153&itemId=19928294622&vendorItemId=87052722734)
 
 
 👍 [XFX 라데온 RX 550 D5 4GB AMD 그래픽카드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7562725475&traceid=V0-153&itemId=19928294622&vendorItemId=87052722734) 👌 

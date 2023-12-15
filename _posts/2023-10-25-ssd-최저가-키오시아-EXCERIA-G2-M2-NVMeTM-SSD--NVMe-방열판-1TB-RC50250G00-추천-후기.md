@@ -61,7 +61,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 1. 키오시아 EXCERIA G2 M.2 NVMeTM SSD + NVMe 방열판, 1TB, RC50250G00
 
-![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2949554013497192-cbebef6b-b9e2-4a40-9e74-52cd91b262c3.jpg)
+[![ssd TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2949554013497192-cbebef6b-b9e2-4a40-9e74-52cd91b262c3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731295&vendorItemId=71229915601)
 
 
 👍 [키오시아 EXCERIA G2 M.2 NVMeTM SSD + NVMe 방열판, 1TB, RC50250G00 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1909820283&traceid=V0-153&itemId=3242731295&vendorItemId=71229915601) 👌 
@@ -79,7 +79,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 2. 한창코퍼레이션 CLOUD SSD, 512GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 512GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196383&vendorItemId=76359688897) 👌 
@@ -97,7 +97,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 3. 삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c39/498043257b06e0000d78fa1fd07fa45aaa8c9af1cf7d186b9cfdcf26216c.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4c39/498043257b06e0000d78fa1fd07fa45aaa8c9af1cf7d186b9cfdcf26216c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773)
 
 
 👍 [삼성전자 870 EVO SATA SSD, 500GB, MZ-77E500B/KR <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=15785263885&vendorItemId=75697199773) 👌 
@@ -115,7 +115,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 4. 한창코퍼레이션 CLOUD SSD, 1TB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2021/06/02/10/6/ef3129ca-26b2-4abe-8d18-895a13280584.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876)
 
 
 👍 [한창코퍼레이션 CLOUD SSD, 1TB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6111382672&traceid=V0-153&itemId=13916196384&vendorItemId=76359688876) 👌 
@@ -133,7 +133,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 5. 도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 1TB, 제트 블랙
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/azbqaxao/5d7008e80960486f980ed2761f5a1195.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/azbqaxao/5d7008e80960486f980ed2761f5a1195.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6156817511&vendorItemId=73453010456)
 
 
 👍 [도시바 칸비오 외장하드 어드밴스 2세대 + 파우치 세트, 1TB, 제트 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4798364374&traceid=V0-153&itemId=6156817511&vendorItemId=73453010456) 👌 
@@ -151,7 +151,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 6. SSD 팀그룹 Team Group GX1 SATA 480GB 하드디스크 윈도우10설치탑재, SSD 480GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8d7b/ba1de1d8b7d2e12c1d581d8e271466787836765eb565a7fe9e92bbbbc5ea.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8d7b/ba1de1d8b7d2e12c1d581d8e271466787836765eb565a7fe9e92bbbbc5ea.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7653949075&traceid=V0-153&itemId=20373265785&vendorItemId=87456828947)
 
 
 👍 [SSD 팀그룹 Team Group GX1 SATA 480GB 하드디스크 윈도우10설치탑재, SSD 480GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7653949075&traceid=V0-153&itemId=20373265785&vendorItemId=87456828947) 👌 
@@ -169,7 +169,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 7. 삼성전자 870 EVO SSD, 1TB, MZ-77E1T0
 
-![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)
+[![ssd TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6730/c397077b84ab072d16f9ad0a0e6d09f85aff14ba9770addecae971732774.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253)
 
 
 👍 [삼성전자 870 EVO SSD, 1TB, MZ-77E1T0 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6750192399&traceid=V0-153&itemId=19432063802&vendorItemId=76660479253) 👌 
@@ -187,7 +187,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 8. SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB
 
-![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)
+[![ssd TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/5547319295952285-5c3f4fa7-5879-4260-bfd7-683749b6d4b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470)
 
 
 👍 [SK하이닉스 GOLD P31 NVMe SSD, HFS500GDE9X0733, 500GB <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6091702345&traceid=V0-153&itemId=6385458199&vendorItemId=73680480470) 👌 
@@ -205,7 +205,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 9. WD My Passport 휴대용 외장하드 + 파우치, 5TB, 레드
 
-![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/915455891675350-1f1572a4-978d-4225-88f4-5a8e17f92b31.jpg)
+[![ssd TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/915455891675350-1f1572a4-978d-4225-88f4-5a8e17f92b31.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1238087073&traceid=V0-153&itemId=2168707036&vendorItemId=70166836905)
 
 
 👍 [WD My Passport 휴대용 외장하드 + 파우치, 5TB, 레드 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1238087073&traceid=V0-153&itemId=2168707036&vendorItemId=70166836905) 👌 
@@ -223,7 +223,7 @@ SSD는 HDD에 비해 작동 시 소음이 적습니다. 이는 조용한 환경�
 
 ## 10. 샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라
 
-![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)
+[![ssd TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1d70/b63f40dc37dfac3222057184d16325f4e2aacc09a91c0f61e1ba2bbfa0e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757)
 
 
 👍 [샌디스크 외장SSD Extreme 익스트림 방수 방진 휴대용 포터블 SSD E61 1TB, 블랙, 1테라 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6595832843&traceid=V0-153&itemId=14902035848&vendorItemId=86702625757) 👌 

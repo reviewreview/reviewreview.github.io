@@ -31,7 +31,7 @@ pin: true
 
 ## 1. JEEP spirit (지프스피릿) 기모 후드집업 남.여공용 HD-2027D
 
-![기모후드집업 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a604/5015714cef3dbf48025ea1b8f74b8da71927ec012094101ac221508ed116.jpg)
+[![기모후드집업 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a604/5015714cef3dbf48025ea1b8f74b8da71927ec012094101ac221508ed116.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6878413514&traceid=V0-153&itemId=16476137363&vendorItemId=83665011225)
 
 
 👍 [JEEP spirit (지프스피릿) 기모 후드집업 남.여공용 HD-2027D <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6878413514&traceid=V0-153&itemId=16476137363&vendorItemId=83665011225) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 2장묶음 (1+1) 데일리 특양면 기모 후드집업 (SCC5232PT)
 
-![기모후드집업 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c8d5/f4cc667b7166854e46975aa05e3b1d433e57ab30fee804e890a2c5821c9a.jpg)
+[![기모후드집업 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c8d5/f4cc667b7166854e46975aa05e3b1d433e57ab30fee804e890a2c5821c9a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6109756144&traceid=V0-153&itemId=11507088029&vendorItemId=78782263302)
 
 
 👍 [2장묶음 (1+1) 데일리 특양면 기모 후드집업 (SCC5232PT) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6109756144&traceid=V0-153&itemId=11507088029&vendorItemId=78782263302) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 앨빈클로 남녀공용 데일리 무지 기모 후드집업 AZH539
 
-![기모후드집업 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/16454312064201-ecab2007-e852-429e-88f2-f68998edcc4b.jpg)
+[![기모후드집업 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/16454312064201-ecab2007-e852-429e-88f2-f68998edcc4b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=181348485&traceid=V0-153&itemId=519338766&vendorItemId=5176519700)
 
 
 👍 [앨빈클로 남녀공용 데일리 무지 기모 후드집업 AZH539 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=181348485&traceid=V0-153&itemId=519338766&vendorItemId=5176519700) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 가을 오버핏 기모 후드자켓 캐주얼 집업 맨투맨 점퍼 빅사이즈여성의류 40대 아우터
 
-![기모후드집업 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fa89/c4ab3e2b018ec41f21f272c5c6bf5a15c79d8a1d5fc5ba1c759556acc017.jpg)
+[![기모후드집업 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fa89/c4ab3e2b018ec41f21f272c5c6bf5a15c79d8a1d5fc5ba1c759556acc017.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7575596703&traceid=V0-153&itemId=19987765840&vendorItemId=87521861808)
 
 
 👍 [가을 오버핏 기모 후드자켓 캐주얼 집업 맨투맨 점퍼 빅사이즈여성의류 40대 아우터 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7575596703&traceid=V0-153&itemId=19987765840&vendorItemId=87521861808) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 베베디 여성용 영스크 기모 후드집업
 
-![기모후드집업 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f388/c1524099ea43439703b289f74e34518a5b47fb2bbbc914087840283e3ad3.jpg)
+[![기모후드집업 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f388/c1524099ea43439703b289f74e34518a5b47fb2bbbc914087840283e3ad3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6137276034&traceid=V0-153&itemId=11745410739&vendorItemId=79019295241)
 
 
 👍 [베베디 여성용 영스크 기모 후드집업 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6137276034&traceid=V0-153&itemId=11745410739&vendorItemId=79019295241) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 베베디 여성용 영스크 기모 후드집업
 
-![기모후드집업 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2c53/8e7cc1227abc4857d6c4e9a32f9b655c833b664785991f15ed95de23ff31.jpg)
+[![기모후드집업 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2c53/8e7cc1227abc4857d6c4e9a32f9b655c833b664785991f15ed95de23ff31.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6137276034&traceid=V0-153&itemId=11745410744&vendorItemId=79019295268)
 
 
 👍 [베베디 여성용 영스크 기모 후드집업 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6137276034&traceid=V0-153&itemId=11745410744&vendorItemId=79019295268) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 남녀공용 특양면 무지 기모 후드집업 (AB025)
 
-![기모후드집업 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/76d2/fd82dd06fc2cc1ef183c13f60f2483c78ccb4d3cb19126a7b0f212821332.jpg)
+[![기모후드집업 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/76d2/fd82dd06fc2cc1ef183c13f60f2483c78ccb4d3cb19126a7b0f212821332.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6083646101&traceid=V0-153&itemId=11291859540&vendorItemId=72821372614)
 
 
 👍 [남녀공용 특양면 무지 기모 후드집업 (AB025) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6083646101&traceid=V0-153&itemId=11291859540&vendorItemId=72821372614) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 고스트리퍼블릭 남녀공용 베이직 무지 인조양털 후드집업 GHZ-252
 
-![기모후드집업 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/267759785093123-6bea65d7-ed5b-4613-b30a-f47b14da673c.jpg)
+[![기모후드집업 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/267759785093123-6bea65d7-ed5b-4613-b30a-f47b14da673c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=11335766&traceid=V0-153&itemId=48953007&vendorItemId=5130781630)
 
 
 👍 [고스트리퍼블릭 남녀공용 베이직 무지 인조양털 후드집업 GHZ-252 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=11335766&traceid=V0-153&itemId=48953007&vendorItemId=5130781630) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 도톰한 소프트기모 후드집업 (MDHD343TS)
 
-![기모후드집업 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f0f7/9b173dbc2a257c52d14e0d12a51f3063b26925d9e0fe06c132fd0f0ee7bd.jpg)
+[![기모후드집업 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/f0f7/9b173dbc2a257c52d14e0d12a51f3063b26925d9e0fe06c132fd0f0ee7bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6792505179&traceid=V0-153&itemId=16007406799&vendorItemId=87154232848)
 
 
 👍 [도톰한 소프트기모 후드집업 (MDHD343TS) <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6792505179&traceid=V0-153&itemId=16007406799&vendorItemId=87154232848) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 국내생산 남녀공용 오버핏 레터링 후드 집업 MR702
 
-![기모후드집업 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a441/b40c36608bef6a010e0b5f68d15c054f97c1d578ef0d2870507a6987e00a.jpg)
+[![기모후드집업 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a441/b40c36608bef6a010e0b5f68d15c054f97c1d578ef0d2870507a6987e00a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6822152084&traceid=V0-153&itemId=16173300966&vendorItemId=86941356581)
 
 
 👍 [국내생산 남녀공용 오버핏 레터링 후드 집업 MR702 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6822152084&traceid=V0-153&itemId=16173300966&vendorItemId=86941356581) 👌 

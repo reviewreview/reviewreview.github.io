@@ -20,7 +20,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 1. 아이리버 블루투스 IN 앤 OUT FM라디오 스피커 미니 오디오 CD플레이어, white, IAB30
 
-![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1660435099281864-d411b889-793e-4d23-ae6e-d32e44e01771.jpg)
+[![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1660435099281864-d411b889-793e-4d23-ae6e-d32e44e01771.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461)
 
 
 👍 [아이리버 블루투스 IN 앤 OUT FM라디오 스피커 미니 오디오 CD플레이어, white, IAB30 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6400820937&traceid=V0-153&itemId=13684351426&vendorItemId=80936041461) 👌 
@@ -38,7 +38,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 2. 에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트
 
-![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg)
+[![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4332043739311754-9a5d9f6d-aaca-4e11-a6ec-c6779aa6fc1a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797)
 
 
 👍 [에듀플레이어 벽걸이 CD플레이어, NEW EA30, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7246197613&traceid=V0-153&itemId=18422102540&vendorItemId=3229411797) 👌 
@@ -56,7 +56,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 3. 인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트
 
-![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg)
+[![cd플레이어 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/xkqgptq5/a7fddc0187dd41c4b318bd320a40124d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760)
 
 
 👍 [인비오 휴대폰 무선충전 시계 라디오 CD플레이어, IV-CD200W, 인비오 IV-CD200W 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6132927898&traceid=V0-153&itemId=11707998235&vendorItemId=73584479760) 👌 
@@ -74,7 +74,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 4. 아이리버 카세트 CD플레이어, IAT60, WHITE
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/13/15/0/75efbe4e-2bb7-4645-883d-be6243e54658.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/10/13/15/0/75efbe4e-2bb7-4645-883d-be6243e54658.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650726379&traceid=V0-153&itemId=20355834968&vendorItemId=87440101984)
 
 
 👍 [아이리버 카세트 CD플레이어, IAT60, WHITE <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7650726379&traceid=V0-153&itemId=20355834968&vendorItemId=87440101984) 👌 
@@ -92,7 +92,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 5. 림스테일 USB 3.0 CD / DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(WH)
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1165335741251223-2cb11285-c3a5-48cd-982e-d143fa5bd098.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/1165335741251223-2cb11285-c3a5-48cd-982e-d143fa5bd098.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599)
 
 
 👍 [림스테일 USB 3.0 CD / DVD RW 멀티 외장형 ODD + C타입 젠더 세트, LM-19(WH) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5492885736&traceid=V0-153&itemId=14999840873&vendorItemId=82964361599) 👌 
@@ -110,7 +110,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 6. 인사이디 휴대용 무선 LED 무드등 블루투스 턴테이블 베이지, IBT-Retro Light(베이지)
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/506650623421063-a199c758-1e83-4402-8dd0-33d7e81375f1.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/506650623421063-a199c758-1e83-4402-8dd0-33d7e81375f1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129)
 
 
 👍 [인사이디 휴대용 무선 LED 무드등 블루투스 턴테이블 베이지, IBT-Retro Light(베이지) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5830036362&traceid=V0-153&itemId=6600354462&vendorItemId=76626200129) 👌 
@@ -128,7 +128,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 7. 코비 댕댕이 블루투스 CD플레이어, BTCD10, 화이트
 
-![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/05/24/10/9/402f5107-5541-48db-bb05-de4f29be9294.jpg)
+[![cd플레이어 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2019/05/24/10/9/402f5107-5541-48db-bb05-de4f29be9294.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205)
 
 
 👍 [코비 댕댕이 블루투스 CD플레이어, BTCD10, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=229444667&traceid=V0-153&itemId=727541488&vendorItemId=4839984205) 👌 
@@ -146,7 +146,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 8. 코비 MP3 CD플레이어, MP-CD527, 블랙
 
-![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2016/05/13/3013974310/ec0e15d6-a01c-47ce-953a-733ddcc6d295.jpg)
+[![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/product/image/vendoritem/2016/05/13/3013974310/ec0e15d6-a01c-47ce-953a-733ddcc6d295.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10032778&traceid=V0-153&itemId=44263330&vendorItemId=3013974310)
 
 
 👍 [코비 MP3 CD플레이어, MP-CD527, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=10032778&traceid=V0-153&itemId=44263330&vendorItemId=3013974310) 👌 
@@ -164,7 +164,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 9. 노트케이스 USB 3.0 DVD RW 멀티 외장형 ODD, NC-MULTI8X(화이트)
 
-![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cea6/90015b4c7b63ab3f200ad4fc59e1275d586037d568f02993c3fc5efd1eec.jpg)
+[![cd플레이어 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cea6/90015b4c7b63ab3f200ad4fc59e1275d586037d568f02993c3fc5efd1eec.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666)
 
 
 👍 [노트케이스 USB 3.0 DVD RW 멀티 외장형 ODD, NC-MULTI8X(화이트) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6348114774&traceid=V0-153&itemId=13346699741&vendorItemId=86295855666) 👌 
@@ -182,7 +182,7 @@ CD플레이어는 오디오 재생 장치 중 하나로, CD(콤팩트 디스크)
 
 ## 10. 롯데알미늄 휴대용 CD 플레이어, Pingky-150, 화이트
 
-![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4e65/c006d25233aa4871f9f98472fbb0cc906a4484ff410cbcd3f18c250b5389.jpg)
+[![cd플레이어 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4e65/c006d25233aa4871f9f98472fbb0cc906a4484ff410cbcd3f18c250b5389.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5641760084&traceid=V0-153&itemId=9206089833&vendorItemId=74020086006)
 
 
 👍 [롯데알미늄 휴대용 CD 플레이어, Pingky-150, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5641760084&traceid=V0-153&itemId=9206089833&vendorItemId=74020086006) 👌 

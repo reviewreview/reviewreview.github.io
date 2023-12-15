@@ -31,7 +31,7 @@ pin: true
 
 ## 1. [DH몰] FASHION 남성용 발편한 스니커즈 단화
 
-![골든구스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5378/624eb98f330eacb680543745ddc3cfe841a2bee54ad56b770fef317163a3.jpg)
+[![골든구스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/5378/624eb98f330eacb680543745ddc3cfe841a2bee54ad56b770fef317163a3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6424607172&traceid=V0-153&itemId=13838433529&vendorItemId=82815065646)
 
 
 👍 [[DH몰] FASHION 남성용 발편한 스니커즈 단화 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6424607172&traceid=V0-153&itemId=13838433529&vendorItemId=82815065646) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. [골든구즈] [골든구스] 21FW GYF00102 F000414 10303 네이비탭 스니커
 
-![골든구스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d042/eaa21dac6c5ff60506ceb3502e4cd55ddfaf189088f9ddbbc00d33e4eafd.jpg)
+[![골든구스 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d042/eaa21dac6c5ff60506ceb3502e4cd55ddfaf189088f9ddbbc00d33e4eafd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6071045074&traceid=V0-153&itemId=11209003542&vendorItemId=78486575419)
 
 
 👍 [[골든구즈] [골든구스] 21FW GYF00102 F000414 10303 네이비탭 스니커 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6071045074&traceid=V0-153&itemId=11209003542&vendorItemId=78486575419) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. [골든구즈] 골든구스 GYF00101 F002021 10768 스니커즈
 
-![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/76b8/a2ca446612115d6a94f2bc6e6afe4b049a7aa5888c32e1c81ade67c86160.jpg)
+[![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/76b8/a2ca446612115d6a94f2bc6e6afe4b049a7aa5888c32e1c81ade67c86160.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6120683161&traceid=V0-153&itemId=11599996485&vendorItemId=87465299868)
 
 
 👍 [[골든구즈] 골든구스 GYF00101 F002021 10768 스니커즈 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6120683161&traceid=V0-153&itemId=11599996485&vendorItemId=87465299868) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. [골든구즈] [매니아온]골든구스 스타단 남성 스니커즈 GMF00128 F002187 801
 
-![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3318/2704672b5878aa7d06c1782d1d6e9e3b4a0e828222ca8daa34639956b4c9.jpg)
+[![골든구스 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3318/2704672b5878aa7d06c1782d1d6e9e3b4a0e828222ca8daa34639956b4c9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6538403845&traceid=V0-153&itemId=14546878397&vendorItemId=81789247527)
 
 
 👍 [[골든구즈] [매니아온]골든구스 스타단 남성 스니커즈 GMF00128 F002187 801 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6538403845&traceid=V0-153&itemId=14546878397&vendorItemId=81789247527) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. (스나이퍼샵)PU 옴므 스니커즈 운동화
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c424/4d8e19da440209155fbe07fad2c7df64fabb8e673fb40461473a675a359f.png)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/c424/4d8e19da440209155fbe07fad2c7df64fabb8e673fb40461473a675a359f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6423307800&traceid=V0-153&itemId=13828781452&vendorItemId=81078968975)
 
 
 👍 [(스나이퍼샵)PU 옴므 스니커즈 운동화 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6423307800&traceid=V0-153&itemId=13828781452&vendorItemId=81078968975) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 인디언 클래식 남성 스니커즈 2624
 
-![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/74de/54d4693d3f0efed3f2ee2e51cda52b126323dc0a680b1ffaa17e23a80565.jpg)
+[![골든구스 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/74de/54d4693d3f0efed3f2ee2e51cda52b126323dc0a680b1ffaa17e23a80565.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6729197957&traceid=V0-153&itemId=15674120198&vendorItemId=83302735736)
 
 
 👍 [인디언 클래식 남성 스니커즈 2624 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6729197957&traceid=V0-153&itemId=15674120198&vendorItemId=83302735736) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. [골든구즈] 12주년 여성 글리터 스니커즈 GWF00101 F001554 80799
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4f12/623e7f2e977e6fd998b38339784d1e3557fbd150cb6a83df9d5e6be809f5.jpg)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4f12/623e7f2e977e6fd998b38339784d1e3557fbd150cb6a83df9d5e6be809f5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7490224516&traceid=V0-153&itemId=19584801936&vendorItemId=86692268148)
 
 
 👍 [[골든구즈] 12주년 여성 글리터 스니커즈 GWF00101 F001554 80799 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7490224516&traceid=V0-153&itemId=19584801936&vendorItemId=86692268148) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 골든구스 남성 슈퍼스타 E37 골드탭 화이트/골드 스니커즈 GMF00101 F000316 10272
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/30b8/73fe49fdd92b4aefbfd96799a2d4096058094dc1eed65cf12d01fbf34dcd.jpg)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/30b8/73fe49fdd92b4aefbfd96799a2d4096058094dc1eed65cf12d01fbf34dcd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6147516438&traceid=V0-153&itemId=11841016507&vendorItemId=87441827236)
 
 
 👍 [골든구스 남성 슈퍼스타 E37 골드탭 화이트/골드 스니커즈 GMF00101 F000316 10272 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6147516438&traceid=V0-153&itemId=11841016507&vendorItemId=87441827236) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 넘버원슈 남자 6cm 키높이 화이트 스니커즈 남성 흰색단화 운동화
 
-![골든구스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e9da/e927fda685465eb2eb4d5f9cc9e6da0a442388baa3629fbf983eda81edfb.jpg)
+[![골든구스 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e9da/e927fda685465eb2eb4d5f9cc9e6da0a442388baa3629fbf983eda81edfb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7174761603&traceid=V0-153&itemId=18083220625&vendorItemId=85142542522)
 
 
 👍 [넘버원슈 남자 6cm 키높이 화이트 스니커즈 남성 흰색단화 운동화 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7174761603&traceid=V0-153&itemId=18083220625&vendorItemId=85142542522) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 23SS 골든구스 슈퍼스타 여성스니커즈 GWF00101 F004099
 
-![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cf9b/61c043b862f3f71c10e5639dd704c66fc1fa5e811acb246e033a4553fe90.jpg)
+[![골든구스 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/cf9b/61c043b862f3f71c10e5639dd704c66fc1fa5e811acb246e033a4553fe90.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6854415412&traceid=V0-153&itemId=16340794162&vendorItemId=86786157783)
 
 
 👍 [23SS 골든구스 슈퍼스타 여성스니커즈 GWF00101 F004099 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6854415412&traceid=V0-153&itemId=16340794162&vendorItemId=86786157783) 👌 

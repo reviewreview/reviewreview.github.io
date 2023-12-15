@@ -31,7 +31,7 @@ pin: true
 
 ## 1. IMINGLOBAL 이태리소가죽 Anna 퀼팅 버킷백 L345
 
-![버킷백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9d8c/7ae9f4da2168fdf647575b8d1d482a84b54918aad658b9116d5b6f9578ce.jpg)
+[![버킷백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9d8c/7ae9f4da2168fdf647575b8d1d482a84b54918aad658b9116d5b6f9578ce.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7583581543&traceid=V0-153&itemId=20024199626&vendorItemId=87120879822)
 
 
 👍 [IMINGLOBAL 이태리소가죽 Anna 퀼팅 버킷백 L345 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7583581543&traceid=V0-153&itemId=20024199626&vendorItemId=87120879822) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. ANYOU 여성 숄더백 여성가방 토끼 버킷백 크로스 토트백
 
-![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d817/e54c3e3ad1c27b63cfa62a40146d30358c7cbed4ab718ae8384262a14618.jpg)
+[![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d817/e54c3e3ad1c27b63cfa62a40146d30358c7cbed4ab718ae8384262a14618.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7512881644&traceid=V0-153&itemId=19688770431&vendorItemId=87537786496)
 
 
 👍 [ANYOU 여성 숄더백 여성가방 토끼 버킷백 크로스 토트백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7512881644&traceid=V0-153&itemId=19688770431&vendorItemId=87537786496) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. ANYOU 여성 대용량 가벼운 버킷백 직장인 데일리 럭셔리 숄더백
 
-![버킷백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/06dc/b844056342ff1785850ddd392e3f676dda3264d6302aad3989b98fb7934a.jpg)
+[![버킷백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/06dc/b844056342ff1785850ddd392e3f676dda3264d6302aad3989b98fb7934a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7357959634&traceid=V0-153&itemId=18950298142&vendorItemId=87491265939)
 
 
 👍 [ANYOU 여성 대용량 가벼운 버킷백 직장인 데일리 럭셔리 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7357959634&traceid=V0-153&itemId=18950298142&vendorItemId=87491265939) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. SeekFun 대용량 버킷백 여성가방 숄더백 대학생핸드백 리얼 가죽 가방 직장인 숄더백
 
-![버킷백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/963a/bf4077a956e711b25d9a541c801094af32797300d7b75c9f6475f1fe0a41.jpg)
+[![버킷백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/963a/bf4077a956e711b25d9a541c801094af32797300d7b75c9f6475f1fe0a41.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7543879099&traceid=V0-153&itemId=19837845487&vendorItemId=86939447221)
 
 
 👍 [SeekFun 대용량 버킷백 여성가방 숄더백 대학생핸드백 리얼 가죽 가방 직장인 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7543879099&traceid=V0-153&itemId=19837845487&vendorItemId=86939447221) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 오마이뮤즈 구름백 숄더백 패딩백 초경량가방
 
-![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5aca/df870c1f41a0b33ae3b59bd7d3176cd2dd74fc213bbea5bc08a578fc320d.jpg)
+[![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5aca/df870c1f41a0b33ae3b59bd7d3176cd2dd74fc213bbea5bc08a578fc320d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7660716677&traceid=V0-153&itemId=20408695960&vendorItemId=87290479293)
 
 
 👍 [오마이뮤즈 구름백 숄더백 패딩백 초경량가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7660716677&traceid=V0-153&itemId=20408695960&vendorItemId=87290479293) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 겨울 솜사탕 밍크퍼 복조리 펌킨 호박 가방 에코 크로스 핸드 백/4컬러
 
-![버킷백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b062/3d4f8c344671616f7a0e01178360abac57b0b3edb729e763e3beb1362a95.jpeg)
+[![버킷백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/b062/3d4f8c344671616f7a0e01178360abac57b0b3edb729e763e3beb1362a95.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6288405245&traceid=V0-153&itemId=12944679588&vendorItemId=80208931093)
 
 
 👍 [겨울 솜사탕 밍크퍼 복조리 펌킨 호박 가방 에코 크로스 핸드 백/4컬러 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6288405245&traceid=V0-153&itemId=12944679588&vendorItemId=80208931093) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 별빛별하 미니 아가일 체크 복조리 버킷백 크로스 니트 마름모 가방
 
-![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/986f/e3bf75b2980981e715fb7f345f5410815adb86e3000c46c0c8f46d26f227.jpg)
+[![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/986f/e3bf75b2980981e715fb7f345f5410815adb86e3000c46c0c8f46d26f227.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7707685643&traceid=V0-153&itemId=20652937453&vendorItemId=87722750367)
 
 
 👍 [별빛별하 미니 아가일 체크 복조리 버킷백 크로스 니트 마름모 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7707685643&traceid=V0-153&itemId=20652937453&vendorItemId=87722750367) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 세인트스코트 뉴욕 버킷백
 
-![버킷백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/02/18/17/4/fa31ca37-5dd6-473b-9190-91b0b9b94861.jpg)
+[![버킷백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2022/02/18/17/4/fa31ca37-5dd6-473b-9190-91b0b9b94861.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2092678784&traceid=V0-153&itemId=3554834024&vendorItemId=80606017925)
 
 
 👍 [세인트스코트 뉴욕 버킷백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=2092678784&traceid=V0-153&itemId=3554834024&vendorItemId=80606017925) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 2색상 IMINGLOBAL 이태리소가죽 라탄 원통 토트 크로스백
 
-![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/50bd/3293608bb7f97e8239a212b799d245e360242e372d76c69481e70bd7f020.png)
+[![버킷백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/50bd/3293608bb7f97e8239a212b799d245e360242e372d76c69481e70bd7f020.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7584787751&traceid=V0-153&itemId=20029399331&vendorItemId=87125962131)
 
 
 👍 [2색상 IMINGLOBAL 이태리소가죽 라탄 원통 토트 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7584787751&traceid=V0-153&itemId=20029399331&vendorItemId=87125962131) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. ANYOU 여성 숄더백 직장인 데일리 버킷백 크로스 토트백+스카프 증정
 
-![버킷백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5939/7c9446c6db3dcb28857f1d3e9a7daa5b8f182867fae232c644fd9b62750b.jpg)
+[![버킷백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5939/7c9446c6db3dcb28857f1d3e9a7daa5b8f182867fae232c644fd9b62750b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685274359&traceid=V0-153&itemId=20536514491&vendorItemId=87613222717)
 
 
 👍 [ANYOU 여성 숄더백 직장인 데일리 버킷백 크로스 토트백+스카프 증정 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685274359&traceid=V0-153&itemId=20536514491&vendorItemId=87613222717) 👌 

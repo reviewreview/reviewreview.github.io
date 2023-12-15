@@ -31,7 +31,7 @@ pin: true
 
 ## 1. [당일발송] Jeep buluo 남자 지프 가방 미니 슬링백 usb 여자 크로스백 가벼운 여행용 힙색 체스트백
 
-![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e084/ca5752be41ec21aa6d5657d9489baff8526a13bc9f675577859811ea142e.jpg)
+[![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/e084/ca5752be41ec21aa6d5657d9489baff8526a13bc9f675577859811ea142e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7550992165&traceid=V0-153&itemId=19871810991&vendorItemId=86972513366)
 
 
 👍 [[당일발송] Jeep buluo 남자 지프 가방 미니 슬링백 usb 여자 크로스백 가벼운 여행용 힙색 체스트백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7550992165&traceid=V0-153&itemId=19871810991&vendorItemId=86972513366) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. 구찌 23FW (A_517350 96IWS 8745) 여성 GG수프림 미니 크로스백
 
-![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a683/347d52e3643e161c47ca648feb7adcdfe0203e67b5924ee4f75059e65ab5.jpg)
+[![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/a683/347d52e3643e161c47ca648feb7adcdfe0203e67b5924ee4f75059e65ab5.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7479314607&traceid=V0-153&itemId=19532874643&vendorItemId=86641288650)
 
 
 👍 [구찌 23FW (A_517350 96IWS 8745) 여성 GG수프림 미니 크로스백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7479314607&traceid=V0-153&itemId=19532874643&vendorItemId=86641288650) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. [GUCCI] 구찌 오피디아 GG 미디엄 토트백 524537-K05NB-8745
 
-![구찌크로스백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fad6/1f4b6620518f0cc4aef0ad543d0cd69ddce908a574820b2cff0a64184ac2.jpg)
+[![구찌크로스백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/fad6/1f4b6620518f0cc4aef0ad543d0cd69ddce908a574820b2cff0a64184ac2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7387456666&traceid=V0-153&itemId=19093178443&vendorItemId=87361897169)
 
 
 👍 [[GUCCI] 구찌 오피디아 GG 미디엄 토트백 524537-K05NB-8745 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7387456666&traceid=V0-153&itemId=19093178443&vendorItemId=87361897169) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 536224 A7M0G 1000 구찌 GUCCI 소호 체인 크로스백
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d404/7b420508095119f02becaa9fba92e4da0fc43bdf2729b28c5600647be893.jpg)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/d404/7b420508095119f02becaa9fba92e4da0fc43bdf2729b28c5600647be893.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5474572779&traceid=V0-153&itemId=8424124506&vendorItemId=84851175511)
 
 
 👍 [536224 A7M0G 1000 구찌 GUCCI 소호 체인 크로스백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5474572779&traceid=V0-153&itemId=8424124506&vendorItemId=84851175511) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. [담앤드솜 엣지 슬링백] 가방 어깨 방수 스포츠 운동 핸드폰 미니 남자 남성 여자 여성 메신저 크로스 소형 작은 아이패드 여행 파우치 여행용 보조 색 등산 백 러닝 폰 해외 물병
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8138/2f2a428b247daef3d36c01bc4057138c339ee3799e96e2704049b256b5ba.jpg)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/8138/2f2a428b247daef3d36c01bc4057138c339ee3799e96e2704049b256b5ba.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6845985145&traceid=V0-153&itemId=16293130312&vendorItemId=86474416101)
 
 
 👍 [[담앤드솜 엣지 슬링백] 가방 어깨 방수 스포츠 운동 핸드폰 미니 남자 남성 여자 여성 메신저 크로스 소형 작은 아이패드 여행 파우치 여행용 보조 색 등산 백 러닝 폰 해외 물병 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6845985145&traceid=V0-153&itemId=16293130312&vendorItemId=86474416101) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 망고냥 심플한 커플 데일리 크로스백 메신저백
 
-![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/723d/6d36467706cd50e99c8ca650cc50c168a09c2dd4fe14246d6d855932cebd.png)
+[![구찌크로스백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/723d/6d36467706cd50e99c8ca650cc50c168a09c2dd4fe14246d6d855932cebd.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7501957908&traceid=V0-153&itemId=19639639037&vendorItemId=86745883473)
 
 
 👍 [망고냥 심플한 커플 데일리 크로스백 메신저백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7501957908&traceid=V0-153&itemId=19639639037&vendorItemId=86745883473) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. [구찌] [빈티지] 브라운 GG 수프림 오피디아 지퍼 카메라 미니 크로스백 RVSR15 2
 
-![구찌크로스백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/57db/eba5104fb6ad36683793ede63d6fa7aa767c5eeb1b31a8854d0852eff331.jpg)
+[![구찌크로스백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/57db/eba5104fb6ad36683793ede63d6fa7aa767c5eeb1b31a8854d0852eff331.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227918965&traceid=V0-153&itemId=18333160379&vendorItemId=79584094562)
 
 
 👍 [[구찌] [빈티지] 브라운 GG 수프림 오피디아 지퍼 카메라 미니 크로스백 RVSR15 2 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7227918965&traceid=V0-153&itemId=18333160379&vendorItemId=79584094562) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 구찌 마몬트 퀼팅 지퍼 숄더백 447632 DTD1T 1000
 
-![구찌크로스백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20f9/611258c9abce87abbb6e4d3332a1fc1986729aba2a180ecc628d00b269ca.jpg)
+[![구찌크로스백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/20f9/611258c9abce87abbb6e4d3332a1fc1986729aba2a180ecc628d00b269ca.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6714215182&traceid=V0-153&itemId=15597206388&vendorItemId=71591887665)
 
 
 👍 [구찌 마몬트 퀼팅 지퍼 숄더백 447632 DTD1T 1000 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6714215182&traceid=V0-153&itemId=15597206388&vendorItemId=71591887665) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 태영스토어 남성 패션 캥거루 크로스 메신저 캐주얼 백
 
-![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bbda/9b6b2c63dfe82345b3fcb171ecbf95d80454a67821b28b1876ac1a1dcef0.jpg)
+[![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/bbda/9b6b2c63dfe82345b3fcb171ecbf95d80454a67821b28b1876ac1a1dcef0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6930183671&traceid=V0-153&itemId=16264071128&vendorItemId=83948424998)
 
 
 👍 [태영스토어 남성 패션 캥거루 크로스 메신저 캐주얼 백 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6930183671&traceid=V0-153&itemId=16264071128&vendorItemId=83948424998) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. [구찌] 23FW 546592 96IWS 8745 오피디아 GG 체인 지갑
 
-![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4ecb/a1d85838e8fdc6903953149f4b34a3ac26f2a94b4d69d926e8394388f5ff.jpg)
+[![구찌크로스백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/4ecb/a1d85838e8fdc6903953149f4b34a3ac26f2a94b4d69d926e8394388f5ff.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7454322780&traceid=V0-153&itemId=19414324768&vendorItemId=86532144809)
 
 
 👍 [[구찌] 23FW 546592 96IWS 8745 오피디아 GG 체인 지갑 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7454322780&traceid=V0-153&itemId=19414324768&vendorItemId=86532144809) 👌 
