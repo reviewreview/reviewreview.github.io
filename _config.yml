@@ -18,11 +18,11 @@
 ##############################
 text_skin: default # "orange" (default), "dark", "forest", "ocean", "chocolate", "orange"
 highlight_theme: default # "default" (default), "tomorrow", "tomorrow-night", "tomorrow-night-eighties", "tomorrow-night-blue", "tomorrow-night-bright"
-url     : https://narse.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
+url     : https://reviewreview.github.io # the base hostname & protocol for your site e.g. https://www.someone.com
 baseurl : # does not include hostname
-title   : 이 가격 놓치면 손해
+title   : 리뷰리뷰-제품톺아보기 
 description: > # this means to ignore newlines until "Language & timezone"
-  특가 상품 안내사이트
+  상품 안내사이트
 
 
 ## => Language and Timezone
